@@ -54,7 +54,9 @@ The consuls for the year 205 B. C., the fourteenth of the war, were Publius Corn
 
 This is the historian's account, and is an attempt to give a faithful picture of the first scene in the history of the cult at Rome. The Mother appears as a dignified Roman deity. The account of the poet differs in that it introduces the marvellous and invests the scene with the attributes of the worship as it was in the time of its full development in the East.* According to the poet's version, the coming of the Mother is the final act in the Trojan emigration; she had wished to come with Aeneas, but the fates had decreed otherwise, and she had remained content with giving him her trees for his ships.* Attains is not willing to grant the Romans their desire; they plead their kinship with Aeneas, and his coming to Rome;* the earth trembles and rumbles, and the goddess herself speaks:
 
-Ipsa peti volui. Ne sit mora. Mitte volentem.  Dignus Roma locus quo deus omnis eat.*  
+Ipsa peti volui. Ne sit mora. Mitte volentem.  
+Dignus Roma locus quo deus omnis eat.*  
+
 After her long journey by sea along the storied coasts of the Mediterranean, she finds assembled to meet her at the Tiber's mouth the knights, senators, and common people, with mothers, daughters, and Vestals in the front. The ship is drawn into the mouth of the stream by cables, but in vain are the efforts to move it far; the water is low, and the ship becomes fast in the marshy shallow. Confusion seizes the multitude at the omen; the ship is as firm as an island. Claudia Quinta, of noble birth and as beautiful as she is noble, chaste but not untouched by slander, steps forth from the line of mothers, daughters, and Vestals,* dips her hands into the waters of the Tiber, sprinkles thrice her head, lifts thrice her palms to the heavens, kneels to the goddess, strong in the consciousness of her own purity, and with hair no wing loose, calls upon her for vindication from the charges of her enemies. Then rising, with only slight exertion she draws the sacred craft up the stream, while the multitude sends cries of joy to the skies.
 
 *) Livy XXIX 10-14.
