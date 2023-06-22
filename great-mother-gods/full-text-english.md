@@ -16,7 +16,7 @@
 
 # [3\. The Great Mother at Rome under the Republic.](#3-the-great-mother-at-rome-under-the-republic-1)
 
-# [4\. The Cult of the Great Mother under the Empire.]()
+# [4\. The Cult of the Great Mother under the Empire.](#4-the-cult-of-the-great-mother-under-the-empire-1)
 
 # [5\. The Spread of the Cult under the Empire.]()
 
