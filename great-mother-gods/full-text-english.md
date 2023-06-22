@@ -10,7 +10,7 @@
 
 ---
 
-# [1\. The Introduction of the Cult of the Great Mother at Rome.]()
+# [1\. The Introduction of the Cult of the Great Mother at Rome.](#1-the-introduction-of-the-cult-of-the-great-mother-at-rome-1)
 
 # [2\. The Great Mother in the East]()
 
