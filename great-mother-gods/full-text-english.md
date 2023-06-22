@@ -22,7 +22,7 @@
 
 # [6\. The Cult from the Time of Claudius to its Fall.](#6-the-cult-from-the-time-of-claudius-to-its-fall-1)
 
-# [7\. The Great Mother in Art, Literature, and Religion.]()
+# [7\. The Great Mother in Art, Literature, and Religion.](#7-the-great-mother-in-art-literature-and-religion-1)
 
 ---
 
