@@ -14,7 +14,7 @@
 
 # [2\. The Great Mother in the East](#2-the-great-mother-in-the-east-1)
 
-# [3\. The Great Mother at Rome under the Republic.]()
+# [3\. The Great Mother at Rome under the Republic.](#3-the-great-mother-at-rome-under-the-republic-1)
 
 # [4\. The Cult of the Great Mother under the Empire.]()
 
