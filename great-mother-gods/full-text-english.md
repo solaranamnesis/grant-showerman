@@ -8,6 +8,24 @@
 
 #### May, 1901.
 
+---
+
+# [1\. The Introduction of the Cult of the Great Mother at Rome.]()
+
+# [2\. The Great Mother in the East]()
+
+# [3\. The Great Mother at Rome under the Republic.]()
+
+# [4\. The Cult of the Great Mother under the Empire.]()
+
+# [5\. The Spread of the Cult under the Empire.]()
+
+# [6\. The Cult from the Time of Claudius to its Fall.]()
+
+# [7\. The Great Mother in Art, Literature, and Religion.]()
+
+---
+
 # 1\. The Introduction of the Cult of the Great Mother at Rome.
 
 The introduction of the Sibylline Books during the reign of Lucius Tarquinius Superbus* is significant in the history of Rome as marking the point at which the native religion began to be arrested in its natural development and to be transformed under the influence of the religions of the East. It is true that the presence of the Greeks in Italy and the West, through a trade which was considerable, had had its effects on the Roman commonwealth even before this. The Servian constitution bears the marks of the Greek system*; the system of weights and measures of the Romans had been brought into relation with that of the Sicilian Greeks*; the Greek alphabet had been communicated through intercourse with Cumae*; the statue of the Aventine Diana of the Latin confederation had been formed after the image of the Artemis of Ephesus at Massilia.* But the intercourse between the Romans and the Italian and Sicilian Greeks was purely commercial, and though its effects are not difficult to see in the less conservative departments of Roman life, in all that pertained to the inner and deeper life of the commonwealth Greek influence was still operating from a distance. Pliny refers the making of the first statue of the gods to the time of Tarquinius Priseus, and Varro says that none existed up to the time of Servius Tullius.* So far was the Roman worshiper from investing divinity with human form and human attributes, as the Greek did, that for nearly two centuries the symbolism of a flint for Jupiter,* or a lance for Mars,* or a fire for Vesta* was the highest flight his imagination took, while the host of other deities --- and they were as numerous as the acts and duties of the worshiper's life --- remained entirely abstract and formless. The acquisition of the Sibylline Books, then, occurred at a time when Rome had practically no acquaintance with the religions of the East; and the event may be regarded as the first pronounced step in the process which finally resulted in the denationalization of the old-Roman religion and the enthronement of a _turba deorum_ whose worship was not in harmony with the genius of the early Romans, and which came to be in harmony with the genius of the later Romans only by reason of the change which that genius gradually underwent. The introduction of the Books is to be regarded primarily as a manifestation in the development of a new religious system; as a cause it is to be regarded only in so far as it facilitated that development in a peculiar manner.
