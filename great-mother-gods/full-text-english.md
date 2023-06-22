@@ -729,3 +729,253 @@ In the fourth century Attis had come to be a symbol of the sun.* His emasculatio
 *) Visconti Annates 1869 pp. 226, 7.
 
 *) Ibid. 239.
+
+The most important representation of Attis, however, is the life-size statue discovered at Ostia, now in the Lat- eran Museum. The youth reclines on the Idaean rock in an attitude of repose, his left elbow resting upon the head of Idaean Zeus. He is clad in a long mantle which is fastened over the breast. In the left hand is the pedum, and in the right fruit and flowers with three spears of grain. The head bears a pine garland with fruits, and a tiara, from which spring five rays, and which bears also a half-moon and two spears of grain. Besides representing him in the character of the shepherd-lover of the Mother and as the symbol of the fruits of the earth, conceptions with which we are already familiar, this statue makes prominent his solar character by means of the rays and the grain and fruits. The presence of the half-moon is a reference to Attis as Menotyrannus, an epithet applied to him in this period as a result of his confusion with Men, the Phrygian Moon- God.* It is possible that he also enjoyed a cosmic signifi- cance, the rays of the sun and the half-moon being emblems of the universe ; in which case the gift of a silver image of the moon by a priest, as well as the phrases [GREEK] would possess a significance which they do not have w T hen we think of Attis only as the shepherd-lover or as the symbol of vegetation.*
+
+The interpretation of Attis as a symbol of the sun, or as having a cosmic significance, was a product of syncretism. The task of transforming the Phrygian companion of the Mother into such a symbol, however, was from the nature of the case of little difficulty. First, the Mother herself had long been regarded as the earth; second, the time of the' principal ceremonies of the cult, the March equinox, naturally lent an astronomical significance to the deities honored ; and third, the legend of a Great Mother with a son and daughter Helios and Selene had become current long before. Diodorus 3 57 records the tale. Basileia, the daughter of Ge, was called the Great Mother because of her motherly care for her brothers after the death of Ge. Such was her sagacity that after the death of her father she was entrusted with the government of the land. Influ- enced by the desire to leave heirs to the throne, she final- ly wedded Hyperion, and bore Helios and Selene, both marvels of beauty and wisdom. Her brothers, however, fearing that Hyperion would possess the realm, slew him and drowned Helios in the Eridanus. Selene, grief-strick- en at her loss, destroyed herself, while Basileia, searching by the river for the body of Helios, swooned and had a vi- sion in which her son bade her not to mourn, for her chil- dren were to become beings of immortal nature, and the sun, hitherto called the sacred fire, was now to be called Helios, and the moon Selene, instead of Mene. Regaining consciousness, Basileia recounted her dream, gave com- mand to worship as divine her dead children, and forbade anyone ever to touch her person; whereupon, losing her reason, she seized the tympanum and cymbals which had served as playthings to Selene, and, filled with the divine frenzy which their sounds inspired, with dishevelled hair wildly traversed the fields in a manner which struck fear into beholders. Certain ones in pity attempting to lay hands on her were frightened away by torrents of rain and by falling thunderbolts, in the midst of which demonstra- tion Basileia disappeared. The awe-inspired people estab- lished a cult of the stars, invoking them under the name of Helios and Selene, placed their mother among divinities, and erected altars to her, performing all her rites to the sound of tympana and cymbals.
+
+*) C. I. L. VI 499 sqq., 508, 511.
+
+*) Ibid. IX 3146; Hippol. Bef. V 9; Jul. Or. V 135 B; Babr. Fab. CXXVI; RoschQr's Lex. s. v. Attis 720.
+
+The Basileia of this legend was naturally identified by the Romans with the Great Mother, and Helios was conse- quently thought of as being the same as Attis. The fact that Helios was the sun tended to give Attis also a solar character when the two were identified, and this, together with the festival of the equinox and the Mother's charac- ter as the earth, made it easy for syncretism to give the Attis-myth the new significance which it acquired in the late period.
+
+# 5\. The Spread of the Cult under the Empire.
+
+The Great Mother's growth in favor in the outlying parts of the Roman world was as great as at Rome itself. The shrine at Pessinus underwent a magnificent restoration at the hands of the Romans when they made the transfer of the image, and the Attalid kings were benefactors in a like manner at a later period.* The political importance of the priesthood at Pessinus is indicated by the fact that both Eumenes 2 and Attalus 2 intrigued with its representa- tive, a certain Attis, promising him armed assistance in the recovery of certain temple lands.* The power of the priesthood at Pessinus, however, had declined, in a- politi- cal way, at least, by the first century B. C. They had in an- cient times been very powerful --- [GREEK].* The decline of which Strabo speaks may have been one of the causes of the ease with which the Romans accomplished their purpose of transferring the image. However, the city continued throughout the history of the cult to have great signifi- cance as the most ancient and sacred seat of the religion, was the goal of pilgrimages, and worshiped the goddess under the names [GREEK], from Mt. Dindymon overhanging the city, and [GREEK], from the city itself.* She was rep- resented on coins of Pessinus in the imperial period,* and the Emperor Julian attempted to inspire her cult with new life in the age of its decay.*
+
+*) Strabo 567.
+
+*) Momm. Ill 276 note.
+
+*) Strabo 567.
+
+*) Ibid. 469.
+
+All parts of Asia Minor knew the religion of the Moth- er, and the cult spread to the very eastern confines of the peninsula and found its way even into Syria, the strong- hold of the Dea Syria described by Lucian as so much re- sembling the Mother. Phrygia especially was a center of the cult. Strabo calls her [GREEK] and says that all Phrygia worshiped her.* The scholiast notes :[GREEK].* Other districts in which she attained spe- cial prominence were Mt. Sipylus, where she was known as [GREEK], and [GREEK], the last name from a city nearby*; Pergamum, where she was known as [GREEK] and [GREEK] from the city and a neighboring mountain, and where she was represented on the frieze of the great al- tar*; the Troad and neighborhood of Mt. Ida especially, where she was [GREEK], from moun- tains*; Mt. Tmolus, where she was called [GREEK]*; 94 Cyzi- cus, where she was [GREEK], from the city of Plakia,[GREEK], from a neighboring mountain, [GREEK], from a Mt. Din- dymon, and [GREEK].* The esteem in which Attis was held in the East has been noticed on p. 287. As late as 350 A. D. he was especially honored among the Phryg- ians.*
+
+*) Mionnet VII 644, 64 etc.
+
+*) Ep. XLIX 431.
+
+*) Strabo 469.
+
+*) Schol. to Apollon. Arg. 1 1126.
+
+*) Strabo 469; Bull, de Corr. Hell. Ill 328; Paus. V 13, 7.
+
+*) C. I. G. 6835; Strabo 619; Overbeck Gesch. d. Griech. Plast. II 406.
+
+*) Strabo 45, 614, 539.
+
+*) Ibid. 440.
+
+*) C. I. G. 3657; Nic. Alex. 8; Apollon. Arg. I 1125; Bull, de Corr. Hell. XVII 531 sq. no. ,33.
+
+*) Harpocration s. v. Attis. [GREEK].
+
+Numerous coins with familiar types of the Mother, struck under the Empire in nearly every province of Asia Minor, form another evidence of the universality of the cult. The greater part of those known were struck during the period beginning with the reign of Hadrian and ending with that of Gallienus; and the Emperors Hadrian, Antoninus Pius, Marcus Aurelius, Commodus, Caracalla, Geta, and Gallie- nus seem to have been those under whom the coinage was most frequent.* In the reign of Commodus, for example, coins bearing representations of the Mother were struck in Phrygia, Bithynia, Mysia, Ionia, and Lydia.
+
+The age of the Antonines, which marked the period in which coins bearing representations of the Mother began to be frequent in Asia Minor, marked also the rise and spread of the _taurobolium_. The coinage was essentially Ro- man, not Phrygian or Asiatic, and the frequent appearance in it of the Mother was the manifestation of a revival or a quickening of interest in the cult coming from Rome as a center. The wave of influence which was manifested in Gaul by the introduction of the _taurobolium_ reached Phrygia and the East at the same time and was manifested in the coinage. Rome, instead of a mission post, had become the center of the whole cult, whose history from that time on was much the same in the provinces as in the capital.
+
+Owing to the close resemblance and consequent confusion of Cybele, Rhea, and the Greek Great Mother, it is impos- sible to speak with definiteness of the career of the Phryg- ian divinity in Greece. Of her introduction and the repute in which she was held mention has been made. The pure- ly Asiatic features of the worship were not agreeable to the Greeks, and Attis especially met with little favor. He was honored at Peiraeus at the beginning of the second century B. C. with [GREEK], which seem to have been festivals like those of Adonis, and it is probable that Cybele-Attis and Aphrodite-Adonis were identified in this case. The priestess of the cult, which was a private one dating from the end of the fourth century, is mentioned with honor because [GREEK].* The great similar- ity of Attis and Adonis, whose only striking difference lay in the detail of emasculation, was one cause of the failure of the worship of the former to become more popular in Greece. Peiraeus, being a seaport town, was naturally more easily entered by foreign cults than the inland cities. Elsewhere in Greece Attis enjoyed a sanctuary in common with the Mother in only two cities, Dyme and Patrai,* and was never recognized as other than a foreign divinity. Lu- cian calls him, together with Pan, Korybas, and Sabazios, [GREEK].* Besides the shrines of the Mother at Peiraeus, Dyme, and Patrai, there were in Pausanias' time sanctuaries at Thebes and Acriae, a city of Laconia.* These are given as belonging to the Asiatic Mother. The difference, however, between the worship of the Greek and the Asiatic Mother and Rhea was at most very slight under the Empire, except in the few places where Attis also was worshiped. The _taurobolium_ was ex- tremely rare, and only two instances of its performance, commemorated on altars both found at Athens, are known. Both occurred at a very late period in the fourth centu- ry A. D.* Coins of Megara, Corinth, Patrai, _etc._, are indica- tions of the influence coming from Rome in the second centu- ry A. D. The cult in Greece, however, never reached the height of popularity which it enjoyed at Rome, a fact which is evidenced not only by the unpopularity of Attis and the rarity of the _taurobolium_, but by literary testimony. The worshipers were for the most part women, and even the few men who cultivated the religion were the weak and effeminate.* Pythagorean Phintys tells honest women to keep away from the rites of the Mother,* and Plutarch ad- vises husbands to close their doors against stranger super- stitions, and attributes the strength of the cult to charlatan beggars and vagabonds who manufacture oracles for slaves and women.*
+
+*) Mionnet, Imhoof, et. al., passim.
+
+*) Comparetti, A nnates 1862, 23 sqq.
+
+*) Paus. VII 17, 9; 20, 3.
+
+*) Jcaromen. 27.
+
+*) IX 25, 3; III 22, 4.
+
+*) C.I. J. Ill 172, 173, cf. Bull. deW 1st. 1867, 174.
+
+Numerous coins with representations of the Mother, dat- ing from the period of the Antonines and later, testify to the prosperity of the cult in Thrace. She was worshiped in several places in Macedonia, a relief of her having been found at Amphipolis, where were also found, in a necropo- lis, hundreds of terra cotta figurines of Attis.* Moesia was a stronghold of the cult, and Epirus also afforded it a home.*
+
+The cult followed the Roman arms into Africa. The Mother appears on Egyptian coins of Antoninus Pius, Faustina, and Julia Domna.* Augustine in his youth wit- nessed the games and scenic festivities of the _Lavatio_ at Car- thage.* In Mauretania, Cesarea especially was a home of the cult.*
+
+In Spain, inscriptions attest _taurobolia_ in Emerita and Corduba, and dedications in Olisipo and Capera.* In Mago in Minorca was a temple to the Mother and Attis. Aquita- nia and the Gauls, Noricum, Pannonia, Dacia, Dalmatia, the Rheinland, and even Britain have left traces of the divinity, and the Italian peninsula received her in every province. Lugdunum and Augustodunum, in Gallia Lugdu- nensis; Tournacum, in Gallia Belgiea; Narbo, Forum Julii, Vasio, Dea Augusta Vocontiorum, Valentia, arid Tegna, in Gallia Narbonensis; Celeia, in Noricum; Salonae, in Dalma- tia; Ostia, Portus, Praeneste, Tibur, and other cities near Rome; Cumae, Puteoli, Teate, Corfinium, Venafrum, Sae- pinum, Beneventum, Venusia, Brundisium, Falerii, Faesu- lae, Interamnia, Augusta Taurinorum, Mediolanium, Brix- ia, Verona, Aquileia, Tergeste, Capodistria, in the Italian provinces --- were all centers of the cult.*
+
+*) Schol. to Aristoph. Birds 877, Lysist. 389; Iamb. De My sterns III 10.
+
+*) Stobaeus Floril. LXXIV 61.
+
+*) Praecept. Coniug. 19; De Pyth. Orac. 25.
+
+*) Bull, de Corr. Hell. 1891 p. 423 no. 3, and 1895 p. 534.
+
+*) Mi. et. al., passim.
+
+*) Ibid. VI 243, 1643; 310, 2135; Poole p. 184 no. 1465 pi. 7.
+
+*) De Civ. Dei II 4.
+
+*) C. I. L. VIII 9101; Victor Waille De Caesareae Monumentis Quae Super sunt.
+
+*) C. I. L. II Supp. 5260, 5321; C. I. L. II 178, 179.
+
+The designation of the Mother in Asia, as has been seen, varied according to the locality in which she was wor- shiped. The influence of this custom is seen in the West in the name _Palatina_, applied to the goddess because of her temple on the Palatine.* She is generally known under the Empire, however, by some name which calls to mind either the land whence she came, Phrygia, her connection with the legendary parent city of Rome, Ilium and Mt. Ida, or her essential nature as Mother of all being. She is thus _Mater Phrygia, Cybele, Cybebe, Cybeleia Mater, Pessinuntia, Dindymene, Berecyntia Mater, Mygdonia Mater_*; _Mater Idaea, Mater Iliaca*; Magna Mater, Mater Deum, Mater Deum Mag- na, Mater Deum Magna Idaea_.* Of these the last class is the most frequent, especially _Mater Deum Magna Idaea_, which unites both character and legendary significance and provenience.*
+
+That the characteristics or the cult of the Mother should remain invariable in all the diverse lands in which her re- ligion flourished was impossible. Her very nature forbade that; for every nation had its Great Mother, or at least some divinity akin to her in character, and the approach of the Mother of necessity resulted in each case, if not in a complete blending of the two divinities, at least in a modi- fication of the one or the other. In Syria, she is with difficul- ty to be distinguished from the Dea Syria. In Greece she early became all but completely blended with Rhea, and is not clearly distinguishable from the Greek Mother except when she is designated by an Asiatic name or mentioned in connection with Attis. At Peiraeus, as has been seen, she was identified with Aphrodite. At Carthage it was the Vir- go Caelestis with whom she was associated.* If the Ger- mans worshiped her on her introduction into their country by the Romans, they no doubt saw in her their own _Mater Deum_, mentioned by Tacitus.* In Rome itself, and in Italy, she was akin to Ceres,* to Tellus,* to Ops or Maia,* and was confused even with Minerva* and Juno.*
+
+*) Roscher's Lex. II 2 s. v. Meter; Michaelis Ancient Marbles in Great Britain Oxford 86, 131, 132, 159, etc.
+
+*) C. I. L. XII 405.
+
+*) Verg. Aen. VII 39; Juv. II 111; Catull. LXIII 9; Ovid Ibis 453; Ar- Eob. IV 35; Hor. C. 1 16, 5; Verg. Aen. VI 784; Val. Flac. II 48.
+
+*) Lucret. II 611; Prud. Contra Sym. I 628.
+
+*) C. I. L. VI 508; 494; III 1100-1102; VI 499.
+
+*) Ibid. VI 499-502.
+
+Except where her cult existed in proximity to those of the Dea Syria and Rhea and the Greek Mother, however, the Great Mother preserved her identity completely; and even in the case of those divinities it was more at their own ex- pense than at that of the Mother that the identification took place. At Rome, and in the West generally, she nev- er changed her character perceptibly under the influence of other divinities. She may have taken on at her intro- duction some small part of the staidness and heaviness of the old-Roman gods, but otherwise she remained the same to the end. When under the Empire the returning wave of influence from Rome reached Greece and Phrygia, the va- riations in the cult throughout the vast organization of the Roman possessions became still more slight. Rhea and the Greek Mother, long before this time ail but assimilated with the Phrygian Great Mother, now became completely identified with her, and writers called her Cybele and Rhea indifferently. The cult was uniform, and co-extensive with the Empire.
+
+*) Aug. De Civ. Dei II L.
+
+*) Germ. 40.
+
+*) Aug. De Civ. Dei VII 16, cf. C. I. L. V 796.
+
+*) Aug. De Civ. Dei IV 10.
+
+*) Macrob. I. 12, 20; cf. p. 266.
+
+*) C. I. L. IX 1538-1542: Attini sacrum et Minervae BereGlnt. or P a- racentiae.
+
+*) Aug. De Civ. Dei VII 16.
+
+We have thus seen the religion of the Great Mother es- tablished in every part of the dominions of the Roman peo- ple. Transplanted from its already ancient home in the East to the new "West, it so thrived uuder the new condi- tions that in three centuries its western home was the cen- ter, not an outpost, of the cult, and not only disseminated the worship to the utmost confines of the Roman world --- to Britain, Spain, Africa, Syria, Scythia --- but revivified it in its ancient stronghold. And yet this religion was termed in its own day, and we still term it an oriental superstition, and marvel that it could have become so popular even among a people as little given to inquiring into the deep things of the gods as were the Romans of the imperial pe- riod. The Great Mother of the Gods was an essentially for- eign divinity; her priests were fanatics, often of a despised nation, and, worse than that, sexless; her rites consisted of frenzied orgies ; her genius was entirely different from that of the old gods of Rome --- and yet her cult found ready admission, gained ground from the first, grew until it became one of the most popular and powerful in Rome, and was one of the very last to fall before Christianity. The horror which the most notorious of its practices in- spired is exemplified in Catullus: nothing could be more re- pulsive to a Roman. The increase of the cult in populari- ty was attended by an increase in corrupt practices in con- nection with it. Clodius, the enemy of Cicero, could sell to Brogitarus, the son of King Deiotarus, the very shrine of Pessinus, and the celebration of the _Megalensia_ lost its original respectable character.* Lucretius and Varro are no friends of the priesthood of the cult. Gentle and reverent Vergil, seeking for fit words to express the contempt which sturdy Turnus feels for Trojan Aeneas, can find nothing more pregnant with scorn than _Phryx semivir_.* The _Galli_ are the butt of Martial's obscene wit,* and the lash of Ju- venal's scorn descends upon the cult again and again.* It matters not that Juvenal was a satirist and Martial a pro- fessional wit, and that the testimony of wit and satire is not the most satisfactory; the outward features of the re- ligion, at least, were such as to scandalize anyone but a fanatical adherent. That it lived throughout the centuries seems, at first thought, strange; that it grew to enormous proportions, spread to the ends of the earth, and could win the praise and even the tenderness of poetry,* is incom- prehensible unless there was some reason for it that is not immediately apparent.
+
+We have noted the fortunate combination of circumstan- ces which followed the introduction of the cult --- the good harvests, the end of the second Punic war, the general suc- cess of the Roman arms --- and the patronage of the patri- cian class. Emperors rebuilt and restored the Mother's temples and extended her worship*; Empresses had them- selves represented in her image*; members of good fami- lies entered the priesthood, or performed sacrifices to the goddess in behalf of the imperial house; her last defend- ers were men of high rank in the State.*
+
+*) Be Harusp. Eesp. 13, 28; 12, 24.
+
+*) A en. XII 99.
+
+*) II 45; III 81.
+
+*) II 111; III 60; VI 511; VIII 176.
+
+*) Claud. XV 116-130; XX 279-303; Verg. Aen. IX 80 sqq.
+
+*) Res Gest. Biv. Aug. IV; C. I. L. IX 1406.
+
+*) Muller-Wieseler I 69, 379; Imhoof 211 no. 682 taf. 12, 16; Coh. II 417, 55.
+
+*) Cf. p. 311.
+
+But the religion was not aristocratic in character; on the contrary, it was one which had special attraction for the masses of the people. Cicero complains of the number of slaves in attendance on the ceremonies.* The prominence of processions, in which all might participate, the collec- tion of the _stips_ from house to house, the _Megalensia_, with its games, the _Hilaria_, with the scenic festivities of the day and the universal participation in revelry, which was not only encouraged but enjoined by law, the magnificence of equipment in the celebrations, to which each worshiper felt himself a contributor, the personal familiarity which the people had with the priests by reason of the collection of the _stips_ --- all were elements which united to make the re- ligion strong among the masses of the people.
+
+But the causes of the growth and prosperity of the reli- gion of the Great Mother are not to be found in mere chance, class favor, or the superstition of the common people. These may conduce to growth, but something greater must underlie a religion which grows to such proportions and has as long and vigorous a life as this one had. The real causes are to be sought in the character of the Mother her- self and in the character of her religion.
+
+She is a chaste goddess. Marsyas, in the legend of Dio- dorus, is chaste in his relations with her. Even Ovid rep- resents Attis as winning the chaste love of Cybele. The oracle bids the Romans receive her with chaste hands, and the Vestal Virgins go to welcome her. Claudia con- stitutes her the umpire of her purity. All her ministers by their own will lead chaste lives in her service. And she is a beautiful goddess, and of wonderful intelligence in meet- ing the needs of her suffering subjects. But greatest of all is her maternity. She is not so much a mere Mother of the Gods as a Mother of all creatures in the world. Her touch is healing. She is mistress of the beasts of the field, which in submission draw her chariot. She is the genius of the mountains, the protectress of the cities of the world. In the fields she is supreme. Her blessing causes the seed to swell, the bud to burst, the fruit to ripen. And she is kind- ly and benignant. She is the _alma parens_ of Vergil. She loves the fruits of the fields with all a mother's devotion, welcomes them at their birth, rejoices in their growth, and when they waste away and perish, laments them with a mother's sorrow. She is the great, fruitful, kindly earth itself.
+
+*) De Harusp. Resp. 12, 24.
+
+Further, there was something more genial and satisfac- tory to the soul in the religion itself than in the formal, stately, and passionless religion of the ancient gods of Rome. The need which was beginning to be felt, and which was to be met in fullest measure by Christianity, was met in some small measure, at least, by the oriental religions, among the three most prominent of which was that of the Great Mother. Her devotees were brought nearer the di- vine and nearer each other than the worshipers of the classical divinities. Their divinities could prophesy, and foretell victory, but she could do more than that --- she could communicate with them spiritually; it was possible for a human soul to be enthused with the spirit of the divine. And men were brought nearer each other. There was the geniality of religious association in the fraternal organiza- tions of the _dendrophori_ and _cannophori_. The populace and the priests were kept on familiar terms by the collection of the _stips_, and in the performance of their duty the latter were afforded abundant opportunity of making use of all the arts usually practiced by a scheming priesthood upon the ignorant multitude. As we have seen, Plutarch calls the priestly followers of the Mother in his land a race of vagabonds who fabricate oracles for slaves and women*; the goddess was [GREEK] at Peiraeus, she was skilled in heal- ing in the legend of Diodorus, and magic cures were wrought by her ministers,* who could also furnish pro- phetic information to shepherds and farmers regarding their flocks and harvests* --- and what was true in Greece may be taken as an approximation of what was true at Rome. Further, there was the element of self-sacrifice and consecration, with its consequence so important for the faith of the worshiper, the consciousness of duty performed and deeds accredited, the feeling that divinity has been placed in his debt. The priest of the Great Mother conse- crated himself to her service with an act of self-sacrifice as great as that of any modern monk or priest. He knew what it was to fast, he was merciless to his flesh on the _Dies sanguinis_, and was no stranger to the pain of self- scourging. He may have been the patient object of indig- nities while on his round of duty among the people. Nor were the latter without their share in the sacrifice, though it may have been smaller. The system of collections from house to house for the support of the cult gave every wor- shiper a personal interest in the richness of ceremony to which he himself was a contributor. Temperance was en- joined; no one polluted with wine was permitted to enter the sanctuary.* The worshipers at Pessinus were said to abstain from the flesh of swine.* Finally, and not of least importance, there was the connection of the religion with the idea of purification and new birth. Purification for twenty years or regeneration _in aeternum_ by baptism of blood in the rite of the _taurobolium_, though infrequently mentioned and of vague meaning, at least serve to indicate one cause of the rise of the Mother's religion.
+
+*) De Pyth. Orac. 25.
+
+These, then, were the causes of the rise and spread of the religion of the Great Mother of the Gods. She was beautiful, chaste, and kindly, and her religion was one of those which made an advance on the old-time worships in meeting the needs of its devotees. "These religions (the oriental) had something deeper in them than those of Greece and Rome; they addressed themselves more fully to the religious sentiment," says M. Renan. This much is true, whatever the character of their ministry and however great the amount of corruption which gathered around them. Unfortunately for the justification of their worship- ers, few words in their defense have survived, while the voices raised against them are many. The wit, the satirist, and the zealous Christian theologian are the witnesses in the case, and their evidence is limited to the reprehensible. Great in amount as that was, the fact of its presence does not disprove the existence of the praiseworthy. The spec- tacle of a noble principle degraded by unworthy adherents was not offered the world for the last time in the days of Paganism.
+
+*) Athen. 553 C.
+
+*) Philost. Vita Apoll. Ill 43.
+
+*) Arnob. V 6.
+
+*) Paus. VII 17.
+
+# 6\. The Cult from the Time of Claudius to its Fall.
+
+Neither the administration of Nero, whose short-lived fa- vor was extended now to one, now to another religion, but who was careless of them all; nor the tumultuous times of his successors, Galba, Otho, and Vitellius, were favorable to the extension of the cult beyond the limits it then occu- pied. Nero is said to have impersonated Attis in the the- ater.* The annual festival was being duly celebrated in 69 A. D., when Otho set out on his fatal campaign against Vi- tellius _die quo cultores Deum Matris lamentari et plangere in- cipiunt_.* Vespasian, as has been seen, restored a temple of the Mother at Herculaneum. Domitian, by his law against castration, opposed at least one feature of the worship, whether or not he directed the measure against the cult.*
+
+It is not until the time of Trajan that definite evidence appears of the spread of the cult to the northern and west- ern provinces. The golden age of prosperity for the Em- pire was also the age of greatest prosperity for the reli- gion of the Great Mother. An inscription from Lusitania testifying to the existence of the cult in that place dates from 108 A. D., which may have been some time after the entrance of the worship.* Coins of Trajan bearing repre- sentations of the Mother, struck in Lydia and Egypt, are extant.* It is from the reign of Hadrian that the first known _taurobolium_ inscription dates. The first known occurrence of the same rite outside of Italy dates from 160 A. D., and is another evidence of the extension of the cult toward the North. In this age, too, beginning especially with Hadrian, the striking of coins and medallions bearing the figure of the goddess became very common. The practice was con- tinued with frequency for a century. The numerous exam- ples especially of Antoninus Pius, Marcus Aurelius, the two Faustinas, Commodus, and Julia Domna throughout both West and East, and those of Caracalla, Macrinus, the Gor- dians, the Philips, Valerius, and Gallienus in the East are evidence of the extent of imperial favor.* Whether the striking of these coins had a special significance cannot be determined in the majority of instances; but those of Com- modus are naturally to be connected with an incident relat- ed by Herodian.* Maternus, who with his small army of depredators had been setting at defiance the au- thority of the Emperor in Gaul and Spain, determined to forestall his sovereign's revenge by taking active meas- ures against him. Having secretly made the journey to Rome, he and his followers were to assume various dis- guises and mix with the crowd on the day of the _Lavatio_ and assassinate Commodus. But the latter was informed of the plot, and Maternus and his accomplices were arrested and punished. The Emperor having disposed of his ene- mies, sacrificed and rendered thanks to the Mother, escort- ing her on her way in the procession of the day with re- joicing. Coins were struck bearing the legend _Matri Deum Conserv. Aug. Cos. 6_ and the figure of the mother on a li- on.* The eastern origin of Julia Domna is sufficient ex- planation of the great number of representations of the dei- ty on coins dating from her time and from that of her sons Caracalla and Geta. The establishment of a new branch of the cult, the restoration of a temple, or some incident simi- lar to that related of Commodus may have been the occasion of the striking of these coins, but in general they seem to in- dicate only the favor in which the cult was held.
+
+*) Dio Cass. LXI 20.
+
+*) Suet. Otho 8.
+
+*) Amm. Marc. XVIII 4, 5.
+
+*) C. I L. II 179.
+
+*) S. Reinach Chroniques cZ' Orient 65; Stuart Poole Cat. Gr. Coins of Alex. p. 51 no. 427 pi. 7.
+
+*) Cohen and Mionnet passim.
+
+*) 1 10-11.
+
+*) Coh. Ill 274, 354; cf . 355.
+
+But at the same time in which the Great Mother and other oriental divinities were taking possession of the Roman Empire even to its farthest confines, another eastern cult, though less favored and even denied equal privileges, was rapidly gaining strength. By the latter half of the second century Christianity could appear in Roman literature de- bating the merits of the old and new faiths with dignity and assurance. The charming dialogue of Minucius Felix, who flourished in the time of Marcus Aurelius and Commodus, presents in calm and unembittered language the views of two cultured Roman gentlemen of the opposed religions. The Pagan sees in Christianity an unreasonable falling away from the ancestral religion and a needless overturn- ing of long-established custom. The Christian's attention is fixed upon the absurdity of polytheism and the revolting nature of its legends and practices. The oriental deities, particularly Isis and the Great Mother, are the prominent objects of his animadversion. The points of attack upon the latter, as might be expected, were the legend of Attis and the practices of the priesthood.* The assaults of Ter- tullian are directed toward the same features. The exultant orator tells with great relish of an _Archigallus_ who devoted- ly chastised his own flesh _pro salute imperatoris Marci Aure- lii_, not knowing that the Emperor had died seven days be- fore. The day on which the priest poured out his blood by castrating _also his arms_ --- _lacertos quoque castrando_ --- was the _Dies sanguinis_ of the regular festival, _die nono Kalendarum earundem (Aprilium)_.*
+
+*) Octavius 22 and 24.
+
+But the first irreverent hand laid upon the Mother was not that of a Christian. The first remarkable act of Elaga- balus after his succession and arrival at Rome was to build a temple on the Palatine near the imperial dwellings, to which he was desirous of transferring (and the historian leaves us to infer that in most cases he carried out his de- sign) the _veneranda_ of all the religions of Rome. Among these was the sacred stone of the Great Mother, for whom, next to the Sun, his tutelar deity, Elagabalus evinced the greatest partiality. A favorite diversion of his was to im- personate the gods, and he assumed the character of the Mother, appearing with two lions. He was unsuccessful in his attempt to gain possession of the Palladium, for which the Vestals gave him a fictitious image, but was more for- tunate in his designs on the _sacra_ of the Mother. To accom- plish his end he was initiated into her service, performed a _taurobolium_, engaged in all the rites of the _Galli_, tossing his head in the frenzied dance and imitating not only their actions but also their appearance in every particular.*
+
+The efforts of the mad Emperor, however, did not disturb the fortunes of the goddess. The _Hilaria_ were one of the great festivals in the eyes of his successor, Alexander Se- verus, who on that and a limited number of other holidays allowed his frugal table to be graced with an extra fowl.* In 268 A. D., when the news of the death of Gallienus and the accession of Claudius to the throne came from Milan to Rome, the Senate could not be convened because of the cel- ebration of the _Dies sanguinis_ which was in progress --- _sacro- rum celebrandorum causa_ --- and an informal meeting to rati- fy the election of the new Emperor was held in the temple of Apollo.* Arnobius, writing _Adversus Nationes_ in Numid- ia about 295 A. D., gives evidence by the completeness with which he describes and interprets the rites of the annual festival and recites the legends of the cult that the wor- ship still existed in all its details, and the polemical tone of his declamation indicates that the cult he attacked was still flourishing.* In 303 the _Hilaria_ were duly celebrated at Rome. It was on that occasion that Junius Tiberianus, prefect of the city, apparently after having taken official part in the exercises of the day, took Flavius Vopiscus in- to his carriage on the Palatine, and as they rode over to the _Horti Variani_ persuaded him to write the Life of Aurelian. The day had lost none of its spirit --- _Hilaribus, quibus omnia festa et fieri debere scimus et dici_.*
+
+*) Apol. 25.
+
+*) Lamprid. Elagab. 3, 28, 6, 7.
+
+*) Ibid. Severus 37.
+
+Thus the cult occupied no mean position at the time of the abdication of Diocletian; but that it had begun to pale before the advance of Christianity is evident as well from the boldness with which the champions of the new faith attacked it as from the subsequent course of events. The qualities which had served to attract the worshiper of the Mother and hold him through the centuries of her pros- perity began to seem less worthy now that they began to be the subject of constant comparison with a purer and more reasonable religion. Constantine ascended the throne, and the Edict of Milan placed the Christian worship on an equal footing with the Pagan. The adoption of the new re- ligion by the Emperor, the policy of his successors, Con- stantius and Constans, who decreed the closing of temples and the cessation of sacrifices on pain of death,* tended to make Paganism the persecuted instead of the persecu- ting religion. An insertion in the decree of Constans, however, providing for the punishment of officials who should neglect to enforce its provisions, betrays a lack of confidence in its efficiency. That the edict of the youthful rulers was inefficient at Rome, or that it was at least untimely, is shown by a decree issued after a short interval conceding the use of temples outside the walls because of their sacred character as being connected with the origin of time-honored festivals.* Maxentius, in the rebellion which proved fatal to Constans, attempted to conciliate the Pagan element by conceding the right to sacrifice during night hours, but the concession was with- drawn three years later, in 353 A. D., by Constantius, who vanquished him and united the East and "West under one scepter.* However, the moderate and tolerant spirit shown by the Emperor during his visit to Rome in 357, as well as the silence concerning the violations of the edicts against the practice of Pagan rites, makes it extremely probable that they were not strictly enforced, at least at Rome.
+
+*) Trebell. Poll. Claudius 4.
+
+*) Arnob. V 5-16.
+
+*) Vopisc. Aurelianus 1.
+
+*) Cod. Theod. XVI 10, 4.
+
+The brunt of the attack upon Paganism by the sons of Constantine was sustained by the oriental religions. Fir- micus Maternus, addressing them in the year 347 in his _De Errore Profanarum Religionum_, attacked especially the reli- gions of Isis, Cybele, the Virgo Caelestis, and Mithras. The old-Roman and Graeco-Roman deities were now all but ancient.
+
+As the Great Mother was one of the chief divinities to suffer from the assaults of Constans and Constantius, she was likewise one of those who were especially favored by the Emperor Julian in his short reign of two years and a half. The zealous ruler writes an oration in her defence and invests the legends and practices of her cult with deep phil- osophical significance. The castration of Attis symbolized "the revolution of the sun between the tropics, or the separa- tion of the human soul from vice and error."* In the year 362, while on a journey from Constantinople to Antioch, the Emperor turned aside to visit the ancient shrine at Pessinus, where he venerated the deity.* To his regret, however, he found his subjects at Pessinus less devoted to her than he wished, a condition which called forth a letter from him to the high priest in Galatia with an exhortation to quicken the inhabitants in their devotion.* In 363, on the 27th of March, the last day of the annual festival, coming to Calli- nicum in Mesopotamia on his march against the Persians, he celebrated the rites of the _Lavatio_ in the time-honored way. The language of the historian, who composed his work about 390, indicates that the festival was still in vogue at Rome both in the time of Julian and when the history was written --- _ubi diem sextum Kalendas [Apriles], quo Romae Ma- tri Deorum pompae celebrantur annates, et carpentum, quo vehi- tur simulacrum, Almonis undis ablui perhibetur_.*
+
+*) Ibid. 10, 3.
+
+*) Ibid. 10, 5.
+
+*) Or. V; Gibbon Decline and Fall XXIII.
+
+With the death of Julian Paganism again lost the imperi- al favor. Jovian and Valentinian, however, were tolerant, and it was not until the beginning of Gratian's administra- tion, in 375, that Paganism again became the object of at- tack by the government. The protracted conflict over the altar of Victory was terminated by its final removal from the Senate. About 382, the Emperor decreed not only the withdrawal of governmental support from the Pagan cults, but even the seizure and appropriation by the State of all temple property.* This measure, while it did not deny the right to worship, deprived Paganism of the property it had accumulated and shared in common with the State for ages, and was a mortal stroke; the measures of Valentinian 2, in 391 and 392, forbidding attendance in the temples and sacrifices both public and private,* hastened the death.
+
+*) Am. Marc. XXII 9, 5.
+
+*) Jul. Ep. 49, 431.
+
+*) Am. Mar. XXIII 3, 7.
+
+*) V. Schultze Untergang des Heidentums I 221.
+
+*) Cod. Theod. XVI 10, 11 and 12.
+
+But Paganism made a last convulsive effort. On the death of Valentinian in 392, Eugenius was thrust forward by a faction as claimant to the throne, and reigned two years. He was a Christian, but adopted the policy of conciliating the Pagan party by generous concessions. Having ob- tained, after repeated efforts, the restitution of all privi- leges denied by Gratian,* the Pagans at Rome, headed and inspired by Virius Nicomachus Flavianus, consul for the year 394, attempted to re-establish the polytheistic religion, and for three months the altars of the ancient city were rich with sacrificial victims.* A _lustratio urbis_ was instituted for the first time since Aurelian; Paganism became once more the faith of the city of Rome, and Isis, the Great Mother, Mithras, and Flora were among the most promi- nent of the reinstated deities.
+
+Among the demonstrations of this three months of Pa- gan triumph that which made the deepest impression on the mind of the only witness whose testimony is left to us was the celebration of the rites of the Great Mother. Flavianus himself performed the _taurobolium_; the _Megalensia_ were given; the trunk of the sacred tree was borne in pro- cession; Attis was not without his part in the ceremonies; and the Mother herself, seated in her car, to which were yoked lions of silver, guided by silver reins in the left hand of their mistress, was carried through the streets by the leading citizens.*
+
+This is the last appearance of the Great Mother to the world. Devotees no doubt there were who cherished her in secret, but from this time she disappears from view. Her triumph was cut short by the arrival of Theodosius on the scene, the death of Eugenius and Flavianus, and the enforcement of the decrees of Gratian. She is outlawed, and her priests driven from her temples.* Serena, the niece of Theodosius, adds insult to injury, and brings upon herself the fatal curse of the Vestals by despoiling the fall- en deity of a necklace.* A few years elapse, and the Sib- ylline Books, which had been the cause of her introduc- tion six centuries before, are burned by Stilicho; and in 448-9, we read in the _Fasti Silvii_, opposite the date March 27th, the day of the bathing of the Mother in the Almo: _Lavationem veteres nominabant. Resurrectio._ The most famed of the festivals of the Mother had already become a thing of antiquity.
+
+*) Ambros. Up. I 57, 6.
+
+*) Codex Parisinus 8084 in Riese Anth. Lat. I 1. For full explanations of these verses cf. Morel. Rev. Arch. 1868 and De Rossi Bull. Crist. 1868.
+
+*) Ibid. v. 57 sqq.; 107; 108; 109; 103-7.
+
+The very site of the temple on the Palatine was soon for- gotten. The prominent part the Mother played in the last struggle probably made her sanctuary one of the first Pa- gan edifices to fall before the fanaticism or rapacity of the Christian party as soon as all restraint was removed. It is not unlikely that the destruction of the temple took place during the sack of Rome by Alaric in 410, when the fury of the Christian soldiery raged unrestrained for three days against the monuments of the ancient religion.* The monk of Einsiedlen, in his _Itineraria_ of the ninth century, does not include it among his lists of ancient ruins. The writer of the _Mirabilia_, of the twelfth century, shows how vague were the ideas of the antiquary of his day. The Pantheon, then a Christian church, had been dedicated, says this writer, to the Mother of the Gods, Neptune, and all the gods by Agrippa, in obedience to a command of the goddess who appeared to him in a dream. In her honor he also made and set upon the summit of the edifice a gilded image of the deity, with a bronze canopy and the Pine-cone as a cover- ing.* The same author says _ubi est Sancta Maria Maior fuit templum Cybeles_, which is not corroborated by other evi- dence and is in all probability untrue.*
+
+*) Zos. IV 59; V38.
+
+*) Ibid. V 38. The author sees a fulfillment of the curse in the strang- ling of Serena by the Senate on the approach of Alaric after the death of Stilicho.
+
+*) Jerome Ep. 8; Milman Lat. Christ I 132-136.
+
+*) Mirabilia 16 and 19 (Cod. Urb. Romae Top.).
