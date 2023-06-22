@@ -20,7 +20,7 @@
 
 # [5\. The Spread of the Cult under the Empire.](#5-the-spread-of-the-cult-under-the-empire-1)
 
-# [6\. The Cult from the Time of Claudius to its Fall.]()
+# [6\. The Cult from the Time of Claudius to its Fall.](#6-the-cult-from-the-time-of-claudius-to-its-fall-1)
 
 # [7\. The Great Mother in Art, Literature, and Religion.]()
 
