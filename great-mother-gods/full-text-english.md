@@ -157,97 +157,103 @@ The universal motherhood of the goddess is the feature of her character most fre
 
 She is thus the great parent of all nature. As Phrygia and its neighborhood, though a mountainous region, has also its rich, fertile valleys, she is as well a guardian over man and his interests in the form of flock ami herd and growing vegetation as over the untamed and uncultivated parts of the natural kingdom. But it is her character as a deity of wild nature that comes most prominently to view. She is the Mountain Mother, the Mighty Mother of Ida, the Divinity of the Mountains. She has a passion for the mountains, almost invariably has her sanctuaries on the mountains, and frequently takes her name from theinr Her usual designation [GREEK] is derived either from mountains or caves. She has places of worship in caves; Nicander mentions [GREEK], which are explained as [GREEK].* She has dominion over the sea and the winds; when the Argonauts founded her cult at Cyzicus, the halcyon was her messenger, and in her name foretold a calm. An altar of stones was reared to her there on the mountain, and the Argonauts made sacrifice garlanded with the leaves of the oak, which was sacred to her, while her image was fashioned from a vine.* The poet of _Hom. Hymns_ 14 addresses her as one who delights in the clamor of wolves and gleaming-eyed lions, in echoing mountains and woodland haunts. Anacharsis the Scythian worships her in a place [GREEK].* She is [GREEK], and lions are her faithful companions in literature and art throughout her history.* She is [GREEK], and [GREEK].* In the Phrygian legend given by Diodorus she cares for men and flocks, and there is a suggestion of the witch in her healing children by magic.* She herself as a child is exposed on the mountains, is nourished by wild beasts, and is associated with the satyr Marsyas in her mad wanderings. In _Anth. Pal._ VI 281 she is called on to hasten the maturity of the little Aristodice for the duties of wedlock. Finally, her universal power over the natural kingdom is nowhere more charmingly described than in Apollon. _Arg._ I 1140 sqq. : The trees showered down fruit in wondrous wise, and at their feet of her own accord did the earth send forth the blossoms of delicate herbage. And wild creatures, leaving their dens and the thickets, came forth fawning. And yet another wonder did she perform; for never before had Dindymon streamed with water, but at that moment did it jet forth before them unceasingly from the parched ridge.
 
-*) Apollon. Arg. I 1098 sqq.
+*) Apollon. _Arg._ 1 1098 sqq.
 
-*) Alex. 8 and schol.
+*) _Alex._ 8 and schol.
 
-*) Apollon. Arg. 1084-1124 and schol.
+*) Apollon. _Arg._ 1084-1124 and schol.
 
-*) Herod. IV 76.
+*) Herod. 4 76.
 
-*) Anth. Pal. VI 51; see below, p. 317.
+*) _Anth. Pal._ 6 51; see below, p. 317.
 
-*) Anth. Pal. VI 94; Soph. Phil. 395.
+*) _Anth. Pal._ 6 94; Soph. _Phil._ 395.
 
-*) III 58.
+*) 3 58.
 
 Still more evidence as to the essential wildness of the Great Mother's character is found in the nature of her priests and their manner of worship. The mythical Idaean Dactyloi were the first to discover and forge iron, and had learned the art from their mistress, the Great Mother.* Her mythical attendants, the Corybantes, early became a synonym for what was noisy and orgiastic. 54 The Curetes, whose din of spear and shield at the birth of Zeus had drowned the infant's cries and saved him from Kronos, also became servants of the Mother upon her confusion with Rhea.* The actual priests of the goddess were called [GREEK], a name which the ancients explained as taken from the stream Gallus, which flowed into the Sangarius not far from Pessinus,* and on the banks of which the orgies of the Mother took place. The waters of the stream were fabled to inspire madness in those who drank of them.* The name Galloi first appears in the beginning of the second century B. C., in the Alexandrian epigrams of the _Anthologia Palatina_. The priests were further called [GREEK], sorcerers, [GREEK], dwellers in chambers (caves?) [GREEK].* They were eunuchs, were attired in female garb, and wore their hair, fragrant with ointment, wound in coils on the top of the head, letting it hang loose, however, while performing their orgies. Priests, and priestesses, who were as common as priests in the service ofthe Mother, often dedicated to the goddess their locks, which they had tossed wildly in the frenzied dance.* The attempt to derive Cybebe from [GREEK], the head, has been noted. Clothing and instruments, as well as hair, were sometimes dedicated.* Anacharsis the Scythian, attempting to introduce the worship among his countrymen, sacrificed [GREEK].*
 
-*) Strabo 473; schol. to Apollon. Arg. I 1129.
+*) Strabo 473; schol. to Apollon. _Arg._ 1 1129.
 
-*) Eurip. Bacch. 125.
+*) Eurip. _Bacch._ 125.
 
-*) In Orph. Hymns 30 they are so represented, and are called 6Kipvrjrai } leapers, ito66LxpoToi, beaters of the foot in the dance, poufiijzai, whirlers, 6pE6repoi, creatures of the mountains, opyiocpdvrai, teachers of orgies, etc.--- designations which, of course, describe also the priests of the Mother at that time.
+*) In _Orph. Hymns_ 30 they are so represented, and are called [GREEK] leapers, [GREEK], beaters of the foot in the dance, [GREEK], whirlers, [GREEK], creatures of the mountains, [GREEK], teachers of orgies, _etc._ --- designations which, of course, describe also the priests of the Mother at that time.
 
-*) Plin. JST. H. V 147, VI 4; Herodian 1 11. Movers Die Phoenizier 687 derives it from a Semitic root, and gives it a meaning similar to that of Corybas, Kopfschuttler, and KvfiijftoS. Stephanus s. v. Gallus relates that a Phrygian priest of that name in the service of the Mother, after having castrated himself in a frenzy, lay down by a stream, which was known thereafter as the Gallus.
+*) Plin. _N. H._ 5 147, 6 4; Herodian 1 11. Movers _Die Phoenizier_ 687 derives it from a Semitic root, and gives it a meaning similar to that of Corybas, _Kopfschüttler_, and [GREEK]. Stephanus s. v. _Gallus_ relates that a Phrygian priest of that name in the service of the Mother, after having castrated himself in a frenzy, lay down by a stream, which was known thereafter as the Gallus.
 
-*) Ovid Fast. IV 365.
+*) Ovid _Fast._ 4 365.
 
-*) Anth. Pal. VI 173, 220; IX 340.
+*) _Anth. Pal._ 6 173, 220; 9 340.
 
 The instruments used in the worship were no less in accord with the wild nature of the Mother. There was the [GREEK], flute, whose invention is credited to the goddess herself.* The [GREEK] were hand-clappers, or castanets, used in the dance.* Thirdly, there were the [GREEK], cymbals, brazen disks, hollowed and sharp-toned --- [GREEK].* Most frequently mentioned of all is the [GREEK], tympanum, described by Photius as [GREEK]. It was also described as [GREEK], and was native to Phrygia. 65 It was a necessary part of the equipment of a priest in the sixth century,* and Euripides calls it the invention of Dionysus and Rhea (Cybele), and of the Corybantes.* In _Anth. Pal._ the story is repeated several times of a Gallus who met a lion in a cave, frightened the savage beast by sounding his tympanum, and afterwards dedicated the instrument to the goddess.* Diogenes Tragicus mentions mitrewearing women of Asiatic Cybele, daughters of wealthy Phrygians, with tympana, rhomboi, and the clashing of brazen cymbals.* The rhombus mentioned here was an instrument of the drum or tympanum kind, but does not seem to have been common, at least in later times.* In Pindar appears also the torch --- [GREEK] --- indicating night celebrations, which may have been, however, a Greek addition.* All the instruments of the cult are classed as [GREEK], and served to inflame the ministers and worshipers of the goddess to the highest pitch of enthusiasm. Mad yelling was another feature of the worship. Nicander compares the shrieks of a madman to the curdling yell --- [GREEK] --- of a priestess of the Mother, which makes all shudder who hear.* A Gallus in the Palatine Anthology is [GREEK].* A place of worship is called [GREEK].* The frenzied excitement of priests is [GREEK] and [GREEK], and its culmination is self-scourging, or self-laceration with knives, to symbolize the supreme act of consecration to the Mother, which consisted in self-emasculation. The eunuch Alexis, after the ecstasy of the orgies, dedicates his sharp-voiced cymbals, his deep-toned flutes, made of the horns of a calf, his sonorous tympana, his yellow locks, tossed in the dance, and his knives, stained with red blood.* Epithets applied to the Galloi in token of their emasculation and chastity are [GREEK]. The act by which they deprived themselves of manhood and consecrated themselves to the service of the Mother was voluntary, and sometimes performed by their own hands when they were at the highest point of frenzied excitement.* The custom makes its first appearance, together with the Galloi, in Alexandrian literature, about 200 B. C., and was probably of Semitic origin.*
 
-*) _Ibid._ VI 217-220.
+*) _Ibid._ 6 217-220.
 
-*) _Ibid._ VI 51, 234, 237.
+*) _Ibid._ 6 51, 234, 237.
 
-*) Herod. IV 76.
+*) Herod. 4 76.
 
-*) Diod. Ill 58. Hyagnis is the inventor in Anth. Pal. IX 340 and Marm. Par. 10.
+*) Diod. 3 58. Hyagnis is the inventor in _Anth. Pal._ 9 340 and _Marm. Par._ 10.
 
-*) Anth. Pal. VII 223. Suidas describes them as [GREEK]. Publilius Syrus calls the stork crotalistria, and a chatterbox in The Clouds is called [GREEK].
+*) _Anth. Pal._ 7 223. Suidas describes them as [GREEK]. Publilius Syrus calls the stork _crotalistria_, and a chatterbox in _The Clouds_ is called [GREEK].
 
-*) Anth. Pal. VI 94.
+*) _Anth. Pal._ 6 94.
 
-*) Eurip. Bacch. 58, 124. The Mother is [GREEK] in Orph, Hymns 26, 11.
+*) Eurip. _Bacch._ 58, 124. The Mother is [GREEK] in _Orph. Hymns_ 26, 11.
 
-*) Herod. IV 76,
+*) Herod. 4 76,
 
-*) Eurip. l. c.
+*) Eurip. _l. c._
 
-*) VI 217, 218, 219.
+*) 6 217, 218, 219.
 
 *) Athen. 636.
 
-*) Apollon. A rg. I 1139; cf. pdnrpov, Anth. Pal. VI 74. Frag. 57 B; cf. Herod. IV 76; Anth. Pal. VI 173; VII 223. n Alex. 217-220.
+*) Apollon. _Arg._ 1 1139; cf. [GREEK], _Anth. Pal._ 6 74.
 
-*) VI 234.
+*) Frag. 57 B; cf. Herod. 4 76; _Anth. Pal._ 6 173; 7 223.
 
-*) Nicand. Alex. 8.
+*) _Alex._ 217-220.
 
-*) Anth. Pal. VI 51.
+*) 6 234.
 
-*) _Ibid._ VI 51, 218, 219, 220, 234.
+*) Nicand. _Alex._ 8.
+
+*) _Anth. Pal._ 6 51.
+
+*) _Ibid._ 6 51, 218, 219, 220, 234.
 
 A complete account of the rites and festivals of the Great Mother while she was yet purely Asiatic, cannot be given. The Argonauts poured a libation to her over a blazing sacrifice, accompanying the rite with a dance in which they clashed together their shields and swords, from which Apollonius derives the use of the rhombus and the tympanum of his time.* A priestess in Nicander is called [GREEK], altar-attendant, and [GREEK], bearer of the [GREEK].* The Galloi are also called [GREEK], begging priests of the Mother, showing the manner in which the cult was supported.* Arrian says that the day of lamentation and the bathing of the Mother were Phrygian customs taken over into the Roman cult,* and it is probable that there was a series of festal days every spring in Phrygia as there was at Rome under the Empire, of which the bathing of the goddess in the stream Gallus occupied one day. Servius also states that the Romans worshiped according to the Phrygian manner,* but it is unsafe to invest the early cult in Asia Minor with all customs practised centuries afterward among a people so different from the eastern peoples as the Romans were.
 
 Inseparably connected with the Great Mother is the strange being known as Attis. A study of the various versions of the legend in which he appears will serve to give a fuller appreciation of the character of the Mother as well as to show the relation which the two bear to each other. The legend first makes its appearance in the elegiac poet Hermesianax, about 340 B. C. It is given in abstract by Pausanias, and is meant to account only for the origin of Attis. Attis was the son of Calaus, a Phrygian, and was impotent from his birth. Arrived at the age of manhood, he migrated to Lydia, where he instituted the worship of the Great Mother. He was held in so great honor by the Lydians that Zeus in anger sent into their fields a savage boar, which destroyed Attis and also some of the Lydians. But, continues Pausanias, the Phrygians themselves do not believe this story. There is another legend among them, which says that Zeus in his sleep having discharged seed upon the earth, a monster having both male and female organs sprang into existence. Agdistis was the name given the monster, which was of such terror to the gods that they deprived it of male organs, from which in turn sprang an almond tree, from the effect of whose fruit the daughter of the river Sangarius bore a son. The child was exposed; but, having been cared for by a he-goat, it became beautiful surpassing the human, and inspired love in the breast of Agdistis. When this child, who was named Attis, was of suitable age, his kinsmen sent him to Pessinus to espouse the king's daughter; but during the nuptial hymn Agdistis suddenly appeared, whereupon Attis in a frenzy emasculated himself, his example being followed by the king. Agdistis, seeing the consequences of the madness which she had inspired in Attis, repented of her act, and prevailed upon Zeus to grant that the body of the youth should never decay nor waste. These are the best known legends about Attis, concludes Pausanias.* Elsewhere he states that the burial-place of Attis is on the mountain Agdistis at Pessinus.*
 
-*) Schol. Nicand. Alex. 8; Serv. ad Aen. IX 115; Catull. LXIII 4, 5; cf» Plin. N. H. XXXV 165: Samia testa Matris Deum sacerdotes qui Gal li vocantur virilitatem amputare, nee aliter eitra perniciem.
+*) Schol. Nicand. _Alex._ 8; Serv. _ad Aen._ 9 115; Catull. 63 4, 5; cf. Plin. _N. H._ 35 165: _Samia testa Matris Deum sacerdotes qui Galli vocantur virilitatem amputare, nec aliter citra perniciem_.
 
-*) Rapp, Roscher's Lex. II 1, 1657.
+*) Rapp, Roscher's Lex. 2 1, 1657.
 
-*) Apollon. Arg. I 1134-1140.
+*) Apollon. _Arg._ 1 1134-1140.
 
-*) Alex. 217.
+*) _Alex._ 217.
 
-*) Antiph. in Athen. 553 C; Dion. Hal. II 19, 4.
+*) Antiph. in Athen. 553 C; Dion. Hal. 2 19, 4.
 
-*) Tact. 33, 4.
+*) _Tact._ 33, 4.
 
-*) Ad Aen. XII 836.
+*) _Ad Aen._ 12 836.
 
-*) VII 17, 9-12.
+*) 7 17, 9-12.
+
+*) 1 4, 5.
 
 Another version, differing only in details, is given by Arnobius, a Christian writer of the fourth century, on the authority of a certain Timotheus, otherwise unknown to us, "and others equally learned who have drawn their information from recondite works on antiquity." The mountain here is called Agdus, instead of Agdistis, and it was in this place that Deucalion and Pyrrha created the human race, among whom was also the Great Mother. Zeus having been disappointed in his love for her, Agdistis comes into being as in the story of Pausanias, and is deprived of male attributes by a stratagem of Dionysus. From the blood springs a pomegranate tree, whose fruit, in the same manner as that of the almond in Pausanias, brings into being a child, called Attis for his beauty. His mother is Nana, the daughter of the river-god Sangarius; she is imprisoned by her father, who intends to starve her, but is nourished by her mother with apples and other food until the child is born. The Mother of the Gods and Agdistis are both enamored of the youth Attis, and the latter gives him in secret many gifts of the chase. Attis finally betrays the secret of their love while in wine. The king and his daughter are both named in this version --- they are Midas and la. On the occasion of the marriage, which he has planned in order to rescue Attis from the shameless love of Agdistis, Midas orders the city gates to be closed, but the Mother of the Gods, for the good of the youth, whose fate she knows, raises the walls of the city on her head and enters. Agdistis strikes madness into the entire company, and Attis, exhausted by his frenzy, at length throws himself down under a pine tree, emasculates himself, delivering to Agdistis the mutilated organs with the words: _tibi, Agdesti, haec habe, propter quae motus tantos furialium discriminum concitasti_. But the Mother buries them, and violets spring from them; and as for la, having enveloped the body of Attis in wool and mourned over him in company with Agdistis, she kills herself and is buried by the Mother, purple violets springing from her blood and the almond from her grave. The Mother bears the fatal pine into her cave and in company with Agdistis wildly laments the death of Attis. Zeu will not restore him to life, for that is against the will of the Fates, but he consents to allow the body of the youth to remain undecayed, his hair to continue to grow, and his little finger to move, whereupon Agdistis consecrates the body in Pessinus and causes it to be honored annually with priestly ceremonies.*
 
 The above accounts are intended by their authors merely to present the origin of Attis, and the mention of the Mother is incidental. There is no need to suppose, with Rapp, that Agdistis and the Mother are identical, and that Arnobius has blended several accounts in ignorance of it. 85 The conception of the Great Mother as a monster like Agdistis, which this would imply, nowhere appears, nor does the conception of Attis as in any way a blood descendant of the Mother appear. The appearance of the Mother at the nuptials of Attis and la is not, as Rapp asserts, without motive; she is impelled by her love for the youth, and by her knowledge that he is fated to remain safe only as long as he is not bound by marriage ties --- _ne quid accideret maesti_. 86 Her behavior throughout is that of a protectress-lover, while the character of Agdistis exhibits nothing in common with that of the Mother. It is true that the Mother was occasionally known by the name of Agdistis, 87 but this points to a confusion of the legend of Attis' birth with the legend of his relations with the Mother, or it is an appellation derived from the rock Agdus, the scene of her creation by Deucalion and Pyrrha. The version of Arnobius is a blending of two tales, but not two tales presenting the same characters. He or his authorities blended, or found already blended by tradition, one legend of the birth of Attis and another legend of the relations of Attis and the Mother.
 
-*) Arnob. V 5-8.
+*) Arnob. 5 5-8.
 
-*) Roscher's Lex. I 1, 716.
+*) Roscher's Lex. 1 1, 716.
 
-*) Arnob. V 7.
+*) Arnob. 5 7.
 
 *) Strabo 469, 567.
 
@@ -257,103 +263,103 @@ This version, it will be noticed,, contains nothing of the supernatural except t
 
 Still more euhemeristic is the interpretation of Firmicus Maternus, 347 A. D., who attributes the origin of the Phrygian cult to a rich woman, or a queen, and a youth who despised her and on whom she wished to avenge herself.* Other accounts of the relations of Attis and the Mother, in which the latter is always a goddess and the former merely a beautiful youth, appear in Ovid, the philosopher Sallust, and the Emperor Julian.* In Ovid, Attis inspires a chaste love in Cybele, who enlists him in her service with the admonition to remain ever chaste. He pledges himself, but breaks his oath through love of the nymph Sagaritis, whom the goddess in anger destroys 5 whereupon the youth rushes in madness to the height of Dindymon, lacerates his body with a sharp flint, trails his locks in the dust, and finally castrates himself. Here the chasteness of the goddess and her ministers is emphasized, and the self-mutilation of Attis is consequently a penalty. Sallust represents Cybele as first seeing Attis lying on the banks of the stream Gallus, where she was inspired with love for him and gave him the [GREEK]. Attis returns to her service after his punishment. The account of Julian is the same, except that he represents Attis as having been exposed on the banks of the Gallus.*
 
-*) Diodorus III 58, 59.
+*) Diodorus 3 58, 59.
 
 When the cult of the Mother began to rise into prominence cannot be said. The record of _Marmor Parium_ 10, dating the appearance of the image of the Mother of the Gods and the invention of the flute by Hyagnis in 1506 B. C., shows only that the cult was of great antiquity in 264 B. C., when the record was inscribed. Homer knew vine-clad Phrygia and the banks of the Sangarius ; he knew Mt. Sipylus, another special haunt of the goddess, Mt. Ida, one of the most famed of her abodes, and Tereia, in the vicinity of Cyzicus; but he knew no Great Mother of the Gods.* The writer of _Hom. Hymns_ 14, on the contrary, knew intimately at least the external forms of the cult.
 
-*) Be Error. 3.
+*) _De Error._ 3.
 
-*) Ovid Fast. IV 223 sqq.; Sail. De Diis et Mundo 4; Jul. Or. V 165 sqq.
+*) Ovid _Fast._ 4 223 sqq.; Sall. _De Diis et Mundo_ 4; Jul. _Or._ 5 165 sqq.
 
 *) For interpretation of the Cybele-Attis myth see pp. 284 sqq.
 
-*) Jl. Ill 184-187; XVI 719; XXIV 615; VIII 47; XIV 283.
+*) _Il._ 3 184-187; 16 719; 24 615; 8 47; 14 283.
 
 The so-called Niobe on Mt. Sipylus, now identified as the Mother, and two other reliefs near the tomb of Midas, in the vicinity of Prymnessus, dating from before the middle of the sixth century B. C., form the earliest definite evidence of the existence of the divinity.* In the time of Herodotus she was [GREEK] at Sardis, was established on Mt. Dindymon and at Cyzicus, and had the particular designation [GREEK] as well as the general [GREEK], and was worshiped by priests who had the tympanum in hand and wore images on their breasts.* By Sophocles' time Pessinus had become a center of her cult, and a century later her rites were solemnized in Caria by eunuchs, women, and flute and tympanum-players.* The first Attis legend dates from about the same time. At the end of the third century B. C. the goddess begins to be regarded as especially Phrygian,* but it is not until the time of Strabo and later that evidence appears of Phrygia's being regarded as the home _par excellence_ of the cult.
 
 The fact that the dawn of history finds the cult of the Mother widely spread in Asia Minor --- Sardis, Cyzicus, Mt. Dindymon and Prymnessus --- supports the theory of Ramsay that the divinity was not brought in by the Phrygians, but belonged to the native population of the peninsula. The native deity suffered modification first at the hands of the Phrygian invaders, and by the end of the third century B. C. gave evidence of having been influenced by the Semitic religions. The medium of communication between the Semitic people and the Phrygians were the Lydians, who represented the Semitic stock in Asia Minor, and the date when their influence began to operate was probably not far removed from the year 585 B. C., when Lydia became mistress of Phrygia. The revolting sensual rites, the presence of the hermaphroditic element, and the mountain temples of the Cybele cult all have their parallels in Semitic worship; the Great Mother's resemblance to Atargatis, or Astarte, the Syrian goddess described by Lucian, is almost complete; she is identified with the Cappadocian [GREEK]; monuments existed in Babylon and Phasis on which were representations of a goddess resembling the Mother; the myth of Astronoe and her love, in Phoenicia, is analogous to the story of the Mother and Attis; and the likeness of the Aphrodite-Adonis myth, native to Phoenicia and Cyprus, is the most striking of all.* Indeed Charon of Lampsacus identifies Aphrodite with Cybele,* and in the first years of the second century B. C. Attis was honored at Peiraeus in a festival similar to the [GREEK].*
 
-*) Rauisay Jour. Hell. Stud. Ill 35-41; V 244-246; Reinach Butt, de Corr. Sell. XIII 556.
+*) Ramsay _Jour. Hell. Stud._ 3 35-41; 5 244-246; Reinach _Bull. de Corr. Hell._ 13 556.
 
-*) 1 80; IV 76; V 102.
+*) 1 80; 4 76; 5 102.
 
-*) Polyaen. VIII 53, 4.
+*) Polyaen. 8 53, 4.
 
-*) Apollon. Arg. I 1126.
+*) Apollon. _Arg._ 1 1126.
 
-*) Schol. to above; Strabo 469; Catull. LXIII.
+*) Schol. to above; Strabo 469; Catull. 63.
 
 Further confirmation of the fact that the Phrygian worship was influenced by the Semitic is found in the late appearance of the eunuch priests, the Galloi, who are first mentioned in Alexandrian literature, about 200 B. C. Attis, too, does not seem to have existed in the original native cult, but to have been a later addition from the South. The name Ates occurs on the Tomb of Midas, but is evidently not that of the Attis who is connected with the Mother. The early art of Asia Minor does not show him in company with the goddess and her lions. Herodotus makes no mention of him, although he does relate the story of one Atys. This Atys was the son of Croesus, king of Lydia, and met a violent death, while yet in the bloom of young manhood, at the hands of his friend the Phrygian Adrastus, who pierced him with a javelin with which he had intended to slay a boar.* Had the talkative historian known the Cybele-Attis legend, there is little doubt that he would have included it among his many narrations of the strange and interesting. The first appearance of the name Attis occurs as late as the middle of the fourth century B. C, 2 and the first legend, that of Hermesianaz, dates from about the same time and records the death of Attis in Lydia by a boar sent by Zeus. Herodotus' tale of Atys the son of Croesus, resembling the legend of Adonis, who was also slain by a boar, and containing the name Atys, easily became grafted upon Attis the companion of the Mother in the form of the Hermesianax legend. It seems probable, therefore, that the Cybele-Attis legend had not taken on definite shape much before 340 B. C., the _floruit_ of Hermesianax, and that his worship rose in Phrygia after the beginning of the Lydian supremacy in 585, and was really only the Adonis worship of the Semitic race introduced by the Lydians. A head with Phrygian cap and the front part of a boar appear on a coin of Cyzicus of 430-412 B. C.* Attis and Adonis were identified even by ancient writers,* and we have noted the blending of the Aphrodite-Adonis and CybeleAttis cults at Peiraeus. Haakh has gone so far as to conjecture that the names Attis and Adonis are identical.* The comparatively late rise of Attis in Phrygia is the more probable in view of the fact that Pindar, Sophocles, Aristophanes, and Euripides, as well as Herodotus, while re-, ferring to the Great Mother, say nothing of her connection with Attis. Theopompus is the first to give the name, and the only one before Hermesianax. In Theocritus, however, the story of Cybeie and Attis is familiar enough to be placed beside those of Aphrodite and Adonis and Selene and Endymion.* Neanthes of Cyzicus, about the same time, wrote something in explanation of Attis which Harpocration denominated [GREEK].* Nicander, in the beginning of the second century B. C., mentions the [GREEK] in connection with the OaXa^ai where the priests of the Mother consecrated themselves.* Apollonius, however, in an extended passage on the earliest worship of the deity at Cyzicus, says nothing about Attis,* and the Alexandrian epigrams in the Palatine Anthology are equally silent concerning him, although they give abundant evidence regarding the Galloi and their service.
 
-*) Roscher's Lex. II 1, .1651.
+*) Roscher's Lex. 2 1, 1651.
 
-*) Photiuss. v. KvfirjfioS: [GREEK].
+*) Photius s. v. [GREEK].
 
-*) Oomparetti Annales d& VInstitut 1862, 23.
+*) Comparetti _Annales de l'Institut_ 1862, 23.
 
-*) I 43.
+*) 1 43.
 
 *) Theopompus in Suidas p. 370.
 
-*) Head Hist. Num. 453.
+*) Head _Hist. Num._ 453.
 
-*) Hippolyt. Ref. V 9: [GREEK]; cf. Socrat. Hist. Eccl. Ill 23.
+*) Hippolyt. _Ref._ 5 9: [GREEK]; cf. Socrat. _Hist. Eccl._ 3 23.
 
-*) Stuttgarter Philolog. Vers. 1857, 176 sqq.; cf. C. Curtius Das Metroon in A then 10.
+*) _Stuttgarter Philolog. Vers._ 1857, 176 sqq.; cf. C. Curtius _Das Metroon in Athen_ 10.
 
-*) XX 40 sqq.
+*) 20 40 sqq.
 
 It is impossible to say when the Great Mother made her first passage into Europe, or how she thrived there in her earliest days. Two routes lay open by which her cult might spread toward the West --- that of the Hellespont and Thrace, and that of the Aegean islands. The attempt of Anacharsis the Scythian in the sixth century to carry the worship across the Hellespont, narrated by Herodotus, indicates the one direction of the future spread of the cult. That this route should have been the first is natural as well on account of the wildness of the country as on account of the greater similarity of the peoples. Through the intercourse which the Phrygians of Asia Minor had with the branch of their own race which they left behind in Europe, the deity which they had found in their new home naturally became common to both stocks. The Thracians, who already possessed the orgiastic Dionysus cult, would receive from kinsmen a cult allied to it in nature, like that of the Mother, with greater readiness than the less closely related people of the island route. The route, therefore, by which the Dionysus cult traveled to Boeotia and Phocis, would also be the natural route for the cult of the Great Mother. The date of the passage of the worship by the island route is also uncertain, but the worship existed in a fully developed state at Peiraeus at the beginning of the second century B. C., and had existed privately as early as the end of the fourth century.*
 
 *) S. v. [GREEK].
 
-*) Alex. 8.
+*) _Alex._ 8.
 
-*) Arg.l 1123-1152.
+*) _Arg._ 1 1123-1152.
 
 It is not surprising, then, to find that the Great Mother and the essential features of her cult were known in Boeotia at a time earlier than evidence warrants the belief that the worship had penetrated Attica or the Peloponnesus. Pindar knew it at Thebes,* but neither Aeschylus nor Sophocles had other than a poetical knowledge of a vague and far-away goddess who was a great Earth-mother, as yet with no definite name.* Aristophanes knew her by the name [GREEK]),* but his words are those of broad ridicule, in the mouth of a character in a foreign wilderness, and do not afford convincing evidence that the cult existed at Athens in his time. It is possible that he had his knowledge of the goddess from Thebes. Euripides likewise affords no evidence that the cult had been introduced at Athens in his time. The comic poets of the middle of the fourth century, however, show a greater familiarity with it, Antiphanes devoting an entire play to the begging priests of the Mother, the [GREEK].*
 
 All that can be said as to the date of the introduction of the cult of the Mother into Greece is that it found its way into Thrace early, was known in Boeotia in Pindar's time, and entered Attica near the end of the fifth or the beginning of the fourth century B. C. The Emperor Julian relates that a [GREEK] came to Athens to introduce the orgies of the Phrygian Mother, but that he was thrown into the barathron by the angry citizens. A plague having followed, they consulted the Delphic oracle, and were told to build the goddess a temple. This edifice was called the [GREEK].* The Metroon was a temple of the Great Mother in her Greek rather than in her pure Asiatic character,* but it is at least true that the Athenians were not warm supporters of the cult, and Attis especially was never popular among them.*
 
-*) Comparetti 1. c.
+*) Comparetti _l. c._
 
-*) Pindar Frag. 57 B, 57 C Fennell.
+*) Pindar _Frag._ 57 B, 57 C Fennell.
 
-*) SuppL 901 sqq.; Phil. 391.
+*) _Suppl._ 901 sqq.; _Phil._ 391.
 
-*) Birds 875-877.
+*) _Birds_ 875-877.
 
-*) Meineke Frag. Com. Or. Ill p. 86; II 801; III 520; Athen. 553 C.
+*) Meineke _Frag. Com. Gr._ 3 p. 86; 2 801; 3 520; Athen. 553 C.
 
 That the Greeks tolerated the worship at all was due to the fact that the Asiatic divinity had so much in common with certain of their own gods. First of all, there was already a Mother of the Gods in Greece who possessed all the milder characteristics of the Asiatic goddess,* and who was really that goddess in her earliest and simplest form. Aeschylus saw in the foreign deity the goddess [GREEK], and Sophocles also saw her in the poetic guise of all-nourishing Mother Earth.* Julian identified her with Demeter and Rhea.* She searched for Persephone in the Kybela Mountains.* She and Attis were like Selene and Endymion, Aphrodite and Adonis.* In its rites, her cult bore a resemblance to that of Dionysus, itself of ThracianPhrygian origin. The cymbals, the tympanum, and the flute, the ecstatic dance of a train of men and women, and the coursing over the mountains were features common to both cults. The chorus of Bacchantes in Euripides comes from Tmolus in Asia Minor and celebrates the orgies of the Great Mother Cybele as well as those of Dionysus. The latter is said to have been healed of madness by the Mother in Phrygia, initiated into her mysteries, and equipped for his travels.*
 
 But the most striking resemblance is that between the Asiatic Great Mother and the Greek Great Mother and Rhea. The Greek Mother seems to have been only a milder form of the Asiatic Mother, and is in reality the latter without Attis and the eunuch priesthood. Her character is to be explained by the supposition that she is the deity whom the Phrygians adopted after their invasion of Asia Minor and communicated to the European Phrygians before Semitic influence had modified her worship. Under this supposition the presence of the Metroon in Athens and the representation of the goddess and her lions on the frieze of the treasury of the Siphnians at Delphi toward the end of the sixth century is easily understood.
 
-*) Or. V 159; cf. schol. to Aristoph. Plut. 431.
+*) _Or._ 5 159; cf. schol. to Aristoph. _Plut._ 431.
 
-*) C. Curtius 1. c.
+*) C. Curtius _l. c._
 
-*) Cf. Chap. V p. .
+*) Cf. Chap. 5 p. .
 
-*) Roscher's Lex. II 1, 1661.
+*) Roscher's Lex. 2 1, 1661.
 
-*) L. c.
+*) _L. c._
 
-*) Or. V 159.
+*) _Or._ 5 159.
 
-*) Eurip. Hel. 1301 sqq.; Orph. Arg. 22.
+*) Eurip. _Hel._ 1301 sqq.; Orph. _Arg._ 22.
 
-*) Theocr. 1. c.
+*) Theocr. _l. c._
 
-*) Roscher's Lex. II 1, 1659.
+*) Roscher's Lex. 2 1, 1659.
 
 Rapp understands Pausanias to distinguish the Greek Great Mother, the Asiatic Great Mother, and Rhea by referring to the first always as [GREEK] or [GREEK], to the second as [GREEK] or as connected with Attis, and to the third as associated with Kronos, Zeus, or Poseidon.* While this rule may be true as regards the Greek Mother and the Asiatic Mother, its truth is to be doubted when applied to the Asiatic Mother and Rhea. In 8 10, 1 Pausanias speaks of a mountain in Arcadia --- [GREEK] --- called Alesion after the wandering of Rhea. This is surely the Asiatic goddess, though there is no mention of Attis or of the epithet [GREEK], for her wanderings play a conspicuous part in the legend of Diodorus and are one cause of her confusion with Demeter. The rule, therefore, will not hold; and especially when due consideration is taken of the complete identification which Greek and Latin writers of all periods make, it seems impossible that Pausanias had in mind two entirely distinct divinities. Euripides is the first to use the name Rhea to denote the Mother, and after his time it is common.* The Mother and Rhea seem to be absolutely identical in Nicander, Apollodorus, Theocritus, Aratus, the Palatine Anthology, Philostratus, Lucian, and the lexicographers. It was rather two conceptions of the same deity which Pausanias had. Rhea had been to the Greeks originally only the mother of Zens and the consort of Kronos, and the Curetes in her worship, with their clashing instruments, represented the attendants who had saved the life of the infant Zeus by the din of spear and shield. When the Asiatic Mother became known to the Greeks, they recognized in her worship many similarities to that of Rhea, and soon saw in her Rhea herself, who had left Crete to escape the persecution of Kronos and taken up her abode in the mountain wilds of Asia Minor.* She was known as Rhea or Cybele according to association. No one would think of coupling the names of Kronos and Cybele or Kronos and the Dindymenian Mother, for Homeric usage had coupled the names of Kronos and Rhea for all time; and on the other hand it was natural to use some Asiatic designation of the Mother when she was mentioned in connection with Attis. Temples to the deity in both forms no doubt existed at first, and their rites probably differed, but at most the difference was not greater than that between two sects of the same worship. By the second century B. C. the difference between the two was so little that their names were interchanged. Roman rule, with its tendency to bring about uniformity in all its dominions, made the differences still less apparent, and from that time Rhea, the Asiatic Mother, and the Greek Mother seem to have been identified.
 
-*) Roscher's Lex. II 1, 1660.
+*) Roscher's Lex. 2 1, 1660.
 
-*) Baech. 59-84.
+*) _Bacch._ 59-84.
 
-*) Kretschmer Einleitung in die Oeschiehte der Griech. Sprache p» 194: Entweder ist Rhea erne griechische Gottin und ihre Wesenahnlichkeit mit der Cybele beruht auf Zufall, oder sie entstammt einer den kleinasiatischen Volkern verwandten Urbevolkerung Kretas.
+*) Kretschmer _Einleitung in die Geschichte der Griech. Sprache_ p. 194: Entweder ist Rhea eine griechische Göttin und ihre Wesenähnlichkeit mit der Cybele beruht auf Zufall, oder sie entstammt einer den kleinasiatischen Völkern verwandten Urbevölkerung Kretas.
 
 # 3\. The Great Mother at Rome under the Republic.
 
