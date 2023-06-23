@@ -1085,27 +1085,27 @@ The first coins bearing representations of the Mother are _denarii_ of the early
 
 Representations in relief may be divided into relief on the friezes of sacred buildings, tomb relief, and altar relief. In the first class, the goddess appears on the frieze of the treasure-house of the Siphnians at Delphi going into battle drawn by her lions, work of the last quarter of the sixth century B. C.* She also appears riding on the back of a lion on the great altar at Pergamum, and again on the frieze at Priene.* Mention has already been made of her appearance on tomb reliefs in the archaic period of art in Asia Minor, and in the transition at Cyme. In Italy, the figure of Attis, the unfortunate youth cut off in the prime of his beauty and strength, representing the death of vegetation which was to rise again, naturally found a place in tomb relief. He is represented at Brescia with his chin supported on his right hand, one leg carelessly swung before the other, a youth in meditation and sorrow.* The presence of an inverted torch in this type of relief strengthens the allusion to death.* Among altar reliefs one of the most interesting is that of Claudia Quinta drawing with her fillet the ship on which sits the enshrined goddess. It is dedicated to _Matri Deum et Navisalviae_.* The representations usually incised, of the attributes of the Mother and Attis and the instruments of the cult --- the pine, with birds in its foliage, with instruments suspended from its branches, with Attis leaning against it, the syrinx, the straight and the curved pipe, the _patera_, vases of various forms, the pilleus, the tiara, the tympanum, cymbals, and crotala, the lighted torches, inverse or transverse, the heads of the bull or the ram, the animals themselves; the cock, _gallus_, as a play on the designation of the priests, the sacrificial knife, the Mother herself in her car attended by Attis --- may be mentioned here.* Votive offerings are numerous both in Greece and the West. Here may be classed the silver image presented by the _Archigallus_ and others to the college of the _cannophori_ at Ostia.* At Arausio in Gallia Narbonensis was found a marble fragment inscribed to the Mother and bearing the delineation of a human foot.* A coin of 83 B. C. shows the goddess and a deformed human foot.* Votive offerings in the form of reliefs of the deity in _aediculae_ were common in the Hieron of Epidaurus and have been found in great numbers in Italy. The latter average about 35 by 25 centimeters, and present the deity in most instances on her throne with modius or mural crown and full drapery, two locks of hair descending on either side of the face, the tympanum and patera in her hands, a lion on her knees or lions at her side, while a female figure with a torch, or a youth, stands near.*
 
-*) Roscher's Lex. II 2915.
+*) Roscher's Lex. 2 2915.
 
-*) Bab. I 526, 19; II 312, 3; 321, 13. A coin, struck by Clodius in 43 B. C, contains the representation of a Vestal, which Babelon (I 354, 12) refers to Claudia Quinta. Cf . p. 228 and note 23. It may be said with equa^ reason to refer to the Vestal Claudia who is often confused with Claudia Quinta. Val. Max. V5, 6.
+*) Bab. 1 526, 19; 2 312, 3; 321, 13. A coin, struck by Clodius in 43 B. C., contains the representation of a Vestal, which Babelon (1 354, 12) refers to Claudia Quinta. Cf. p. 228 and note 23. It may be said with equal reason to refer to the Vestal Claudia who is often confused with Claudia Quinta. Val. Max. 5 5, 6.
 
-*) Reinach Rev. Arch. 1895, 98 sq.
+*) Reinach _Rev. Arch._ 1895, 98 sq.
 
-*) Overbeck Geseh. d. Griech. Plast. II 406.
+*) Overbeck _Gesch. d. Griech. Plast._ 2 406.
 
-*) Dutschke Antike Bildw. in Oberitalien IV 354, 359, 360, 380.
+*) Dütschke _Antike Bildw. in Oberitalien_ 4 354, 359, 360, 380.
 
-*) Diitschke _Ibid._ V 569.
+*) Dütschke _Ibid._ 5 569.
 
-*) Helbig Coll. of Antiq. in Rome I 436.
+*) Helbig _Coll. of Antiq. in Rome_ 1 436.
 
-*) C. I. L. VI 494-512; XII 1569; XIV 429.
+*) _C. I. L._ 6 494-512; 12 1569; 14 429.
 
-*) _Ibid._ XIV 34-37.
+*) _Ibid._ 14 34-37.
 
-*) _Ibid._ XII 1223.
+*) _Ibid._ 12 1223.
 
-*) Bab. I 526, 19.
+*) Bab. 1 526, 19.
 
 As examples of statues may be mentioned the figure in Visconti _Museo Pio-Clementino_, fully draped, with mural crown and veil, seated on a throne and resting the left arm upon the tympanum, the similarly clad life-size figure found at Formiae, now in Copenhagen, which held aloft its left hand with the reins of the lions, the statue found on the Palatine, and the statue of Attis from Ostia, already described.* Statuettes of the goddess with her usual attributes are abundant in Italy,* and a group in bronze representing her in her car drawn by lions, discovered at Eome, is now in the Metropolitan Museum in New York City.
 
@@ -1115,15 +1115,15 @@ There exists at least one sarcophagus with a relief showing the Mother. It is in
 
 On a lamp from Sparta is represented Attis, clad in a Greek chlamys, lying under a tree, with pedum, tympanum, and flutes.* A silver vessel in the museum at Avignon found near Aries, shows on its handle the goddess on her throne holding a basket of fruit.* The heads of the Mother and Attis were used as decorations, four examples of their use in this way having been found in Gaul.*
 
-*) Dutschke V 297, 594, 597, 603, 606, 727, etc.
+*) Dütschke 5 297, 594, 597, 603, 606, 727, _etc._
 
-*) Museo Pio-Clem. I pi. 39; Lanciani Ruins and Exeav. 137; cf. p. 288.
+*) _Museo Pio-Clem._ 1 pl. 39; Lanciani _Ruins and Excav._ 137; cf. p. 288.
 
-*) Diitschke V 801, 806, 929.
+*) Dütschke 5 801, 806, 929.
 
-*) Bull, de Corr. Hell XIX 531.
+*) _Bull. de Corr. Hell._ 19 534.
 
-*) Furtwangler Samml. Sabouroff I taf. 75, 4.
+*) Furtwängler _Samml. Sabouroff_ 1 taf. 75, 4.
 
 Among cameos and gems are to be mentioned the cameo in Vienna on which is Livia in the character of the Mother, and an amethyst with Claudia Quinta and the ship.*
 
@@ -1131,35 +1131,35 @@ In pictorial representation proper the Mother appears on a lion on the spina of 
 
 The abundance and variety of representations of the Mother testify to the favor in which she was held in many lands ; but during all the centuries represented by the above cited examples there appeared no really great work of art inspired by her. The reasons are obvious : neither the land of her nativity nor of her adoption possessed an artist who could have created a great work, and the Greek, who alone could have given her a place beside a Zeus, an Athena s or a Hermes, refused her admittance as well to his heart as to his country until the golden age of art was a thing of the past. The Roman, who represented her as ever genial and benignant, would have made her the subject of work with more power to attract the heart than the Greek, had he possessed the power, though his creation might not have been so grandly beautiful. Both the Cybele from Formiae and the Cybele described by Visconti have singular powers of attraction, poor though their art is.
 
-*) C.I. L. XII 5697, 3.
+*) _C. I. L._ 12 5697, 3.
 
-*) Roscher's Lex. II 2925.
+*) Roscher's Lex. 2 2925.
 
-*) Miiller-Wies. I no. 379; J. Henry Middleton Lewis Coll. Gems and Mings 72, 140.
+*) Müller-Wies. 1 no. 379; J. Henry Middleton _Lewis Coll. Gems and Rings_ 72, 140.
 
-*) Hiibner Annates 1863, 160 pi. D.
+*) Hübner _Annales_ 1863, 160 pl. D.
 
 *) Naples Museum no. 9559.
 
 Hardly more can be said of the influence of the Mother's religion in literature. For reasons identical with those mentioned above in accounting for the absence of any great monument of art, there was little of the beautiful in Greek literature that was inspired by her. The comic poets represent the hostile attitude of the Athenians and of the Greek people in general. Sophocles' few words, however, show the conception which a religious Greek had of the essential character of the Mother while as yet the practices of her cult were not present to his sight; 14 and the poetry which could be inspired by her as the Great Mother of all creation is exemplified in the few verses of Apollonius Rhodius.* In Roman literature the presence of the Mother is manifest to a much greater degree. The story of Claudia Quinta and the arrival of the Mother is the subject of some of the most charming passages in Roman poetry, and carries the spirit of poetry with it even into prose when Livy recounts it.* But above all is the poem of Catullus, which is not only the greatest poetry inspired by the cult of the Mother, but one of the greatest poems in the literature of the Romans.* These passages in Roman literature, however, while they have to do with the cult of the Mother, can hardly be said to be inspired by the goddess herself. The poem on Attis presents the horrorinspiring side of the worship, and the Claudia story does not depend upon the religion of the Mother for its power. If we look for passages inspired by real religious feeling, showing a warmth of sentiment, Vergil and Claudian alone will reward our search. The story of the Mother's kindly care over the ships of Aeneas, her appearance in Claudian as the compassionate parent of Rome and the benignant Mother of all the gods show something of sympathy, and are at least contrasts to the rough onsets of Juvenal and the obscene thrusts of Martial.* But when all is said, the personality of the goddess herself seems to have had but little influence upon literature. Her place is not that of a Venus, who could draw a beautiful invocation even from unbelieving Lucretius, nor of a Juno or a Diana. Here again reasons readily suggest themselves. The Mother was not, like other famed divinities, a legacy of the Greek race, and the Roman poet had no rich store of Greek literature inspired by her from which to draw, as he had in the case of the Olympian deities. Further, the period of her greatest popularity came only after the golden age of poetry had gone; and besides, there were always the _Galli_ and a sense of the foreign origin of the religion to interfere with poetic conception. The comparative lack of great literature inspired by the Mother, therefore, is not to be taken as indicative of a corresponding lack of influence in a religious sphere, but rather as an accident of time.
 
-*) Phil. 389-391.
+*) _Phil._ 389-391.
 
-*) A rg. I 1140-3.
+*) _Arg._ 1 1140-3.
 
-*) Ovid Fasti IV 305-?47; Sil. Ital. XVII 1-17; Livy XXIX 14.
+*) Ovid _Fasti_ 4 305-347; Sil. Ital. 17 1-47; Livy 29 14.
 
-*) LXI1I.
+*) 63.
 
 The cult of the Great Mother existed at Rome two years less than six centuries, and was the oldest of the group called oriental religions. It presents the unique spectacle of a cult the date and circumstances of whose rise and fall at Rome are well defined, and whose course can be followed from century to century with a fair degree of certainty. In interpreting the phenomenon of its appearance and disappearance we shall be aided by taking account first of its relation to the religions among which it was received and which it in some measure displaced, and second of its relation to the religion which in turn displaced it.
 
 In the light of the subsequent history of Roman religion, the reception of the Great Mother seems at first sight to be the initiative in a course which did not make for the welfare of the State or of the cause of religion. It has even been called an event "making in fact an epoch in the world's history."* But too much emphasis must not be laid on the introduction as an epoch-making event. Those who believe in the continuity of the religious experience will see in it not so much a cause of what followed as an effect of what preceded it, and an event in the orderly progress of the world's religion toward its end. It was epoch-marking rather than epoch-making. It was a necessary consequence of the religious policy of Rome. That policy had been from the first a policy not only of toleration, but of more than toleration; it was a policy of invitation, even of appropriation. It successively formed, by continual addition, the early circle of old-Roman divinities, then in every possible case, as Hellenic influence made itself felt, introduced and identified with them the Greek divinities, and finally, when the circle of Olympus had been exhausted, had recourse to the Hellenized orient. The same policy would have welcomed the god of the Christians as well from the first had he not been a jealous god. The introduction of the religion of the Mother was an innovation only in that it was the first eastern non-Greek religion to find its way to Rome. It represented no change of policy.
 
-*) Aen. IX 77-122; Claudian. XV 120, 123; XX 279-303.
+*) _Aen._ 9 77-122; Claudian. 15 120, 123; 20 279-303.
 
 As little did it represent a change of direction in the line of development of religion at Rome. The policy of a people is the outgrowth of its needs. The religion of Numa was purely formal, with the sole intention of giving the divinity the exact measure of what was due him and of receiving in turn the exact measure of what was due from him. The gods of his time were vague, far-away, unimaginable beings, unapproachable and unsympathetic. When the Roman had had revealed to him the genial gods of Greece, who not only had definite shape, but had appeared to mortals and communicated with them, the natural consequence was his adoption of them. They brought the unseen world nearer to him, and satisfied in some small measure his natural human longing for a more intimate relation with the divine. In like manner when the oriental religions, among them that of the Mother, came to him with their mysticism, offering him the means by which to come another step nearer divinity, he felt the want of his soul still better satisfied, and eagerly granted the new deities a place among the old. The more conservative, hostile to the new faiths, called them _superstitiones_, and the present time uses the same term when comparing them to the old-Roman faiths, and assumes that they represented a decadence; but whatever were the abuses which gathered about them, they gave the worshiper hope of drawing nearer the divine, of being able to do something for his soul, and represented an advance on mere formalism. The religious revival of the first century A. D. brought hosts of worshipers to the Mother and the Egyptian divinities, while the gods of the old regime fell into the background. With the newer faiths there was mysticism, there was asceticism, and one could, as it were, put the divine in his debt. There was purification, and the peace that follows it. The priests of the Mother and Isis were so many Pagan monks. The next step of the worshiper toward the divine was to be Christianity itself.
 
-*) Moramseii III 115.
+*) Mommsen 3 115.
 
 The change from old-Roman to Graeco-Roman gods, the rise of the eastern religions, and the triumph of Christianity are thus the successive steps in an orderly progression. The distance between the last two was infinitely greater than the other steps, and was traversed with infinitely greater difficulty. Christianity refused to share the sanction of the State with Paganism, for such a course meant the compromise of its purity. Paganism would not give up the rights it possessed by reason of the tradition of centuries, and a struggle began, the representatives of the old system being principally Isis, Mithras, and the Great Mother.
 
@@ -1167,22 +1167,22 @@ Aside from the fact that these religions were traditional and established faiths
 
 The Great Mother was not the least of the contributors to the new faith for the very reason that she was one of its most obstinate enemies. She had early made her opponents feel the weight of her antagonism. About 180 A. D. Saint Symphorian was arrested and martyred for refusing to do obeisance to her as she passed in procession.* A fanatical Christian soldier who burned her temple in Amasia in Pontus, and two Christians who overturned her altar at Pessinus, met the same fate.* She is one of the principal objects of the attacks of Arnobius, Maternus, and Augustine, and is one of the two or three chief actors in the last appearance of Paganism before the public. The resemblances which her religion bore to Christianity may have been superficial, but they were such as to enable her to offer to the ordinary worshiper of her time the same benefits which were offered by it. There was the scourge and the knife for the ascetic priest, the fast for the selfdenying, the life of chastity for the consecrated as well in her service as in the service of the Christian religion. Her religion also made its pretense to virtue in its demand of chastity and temperance on the part of its ministers. Her cult was one of gladness to the populace in its games and festivities. She was always benignant; no thunderbolts were thrown from her hand to terrify her people. If the Christians could be purified and absolved from sin, she also could offer her subjects the means of purification. If there was a death and a resurrection in their religion, there was something in hers also which at least faintly resembled it. Her devotees as well as the Christians could receive salvation, [GREEK]. The day which symbolized it was the _Hilaria_ --- [GREEK].* The _Lavatio_ was his Easter. Half a century after the _Lavatio_ ceased to be celebrated, the _Fasti Silvii_ record _Resurrectio_ as occurring that year on the date of the ancient celebration, with the comment: _Lavationem veteres nominabant_. The advocates and defenders of the Mother could even go so far as to parallel the Virgin herself in their divinity. The Mother too was at the same time a mother and a virgin --- the [GREEK] of Julian* --- for the conception of Attis was not in the ordinary course of nature. Indeed, as such she had a [GREEK].* Her son, too, rose from the dead. A tempter in the person of a rhetorician tried to draw an African bishop into a discussion of the similarity between the Mother of the Gods and the Mother of God.* The mere title Mater Dei, then coming into frequent use, would instantly provoke a comparison with the _Mater Deum_, and the formal bestowal of the former title on the Virgin in council in 430 A. D. might well have seemed in the eyes of Pagans like despoiling their fallen goddess of even her title. The temple of the Mother in Cyzicus was converted into a church of the Virgin, a fate likely to have befallen every temple of the goddess not destroyed by the zeal of fanatics.* The church of Santa Maria Maggiore was supposed to have arisen on the ruins of another temple, and Santa Maria Rotunda, the mediaeval Pantheon, was long supposed to have been originally a sanctuary of the Mother.*
 
-*) Ruinart Acta Mart. 68.
+*) Ruinart _Acta Mart._ 68.
 
-*) Marangoai Belle Cose Gentilesche e Profane 203 and 259. Ruinar t op. cit. 339 sq.
+*) Marangoai _Delle Cose Gentilesche e Profane_ 206 and 259. Ruinart op. cit. 339 sq.
 
-*) Dama3C. Vita Isidori in Photius p. 315 a, Bekk.
+*) Damasc. _Vita Isidori_ in Photius p. 345 a, Bekk.
 
 Such were some of the features which enabled the Mother to prolong her resistance to the new religion. When the contest had proven fruitless and her worshipers were more directly open to the appeals of Christianity their transition to the new faith was made easier by their familiarity with what was common, or what to them seemed to be common to the two religions. They learned the doctrine of a truer self-devotion, found the way to a deeper purification, a more lasting and complete [GREEK], a greater depth of peace, a nearer relation to the divine. The Easter was a better version of the _Lavatio_, the _Mater Dei_ and her son more than a substitute for the _Mater Deum_ and Attis.*
 
-*) Or. V 166 B.
+*) _Or._ 5 166 B.
 
-*) Athen. Mitth. VII 158, inscription.
+*) _Athen. Mitt._ 7 158, inscription.
 
-*) Isidor. Ep. IV 31, 28.
+*) Isidor. _Ep._ 4 31, 28.
 
-*) Schultze Unterg. des Held. II 301 sq.
+*) Schultze _Unterg. des Heid._ 2 301 sq.
 
-*) Mirabilia 30, 16, and 19.
+*) _Mirabilia_ 30, 16, and 19.
 
-*) A. Haakh Stuttgarter Philolog. Vers. 1857 holds that the modern Carnival is a survival of the Hilaria. Andreas Fulvius I, De Ostia, comments as follows on the Lavatio: qui lavandi mos servatur hodie Ro~ mae in lavandis pedibus imaginis Salvatoris dum gestatur per urbem mense Augusti. Cf. Marangoni Delle Cose Gentilesche e Profane 93sqq., who attributes the institution of this festival to one of the early popes.
+*) A. Haakh _Stuttgarter Philolog. Vers._ 1857 holds that the modern Carnival is a survival of the Hilaria. Andreas Fulvius 1, _De Ostia_, comments as follows on the _Lavatio_: _qui lavandi mos servatur hodie Romae in lavandis pedibus imaginis Salvatoris dum gestatur per urbem mense Augusti_. Cf. Marangoni _Delle Cose Gentilesche e Profane_ 93 sqq., who attributes the institution of this festival to one of the early popes.
