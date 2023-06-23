@@ -437,210 +437,213 @@ It has been thought strange that the name Attis does not appear in Roman literat
 
 *) Polyb. 21 37; _C. I. L._ 6 2183.
 
-*)Qui dum esse na hora nam adlatam imponeret aedilia signo siae (sie W) et deam gallantes vario retinebant studio HL W. Qui dum messem hornam adlatam imponeret aedilis signo Cybelae, deam gallantes vario recinebant strepitu. Riese. Qui dum messem hornam adlatam imponunt Attidis signo synodiam gallantes vario recinebant studio. Lachmann. Qui cum e scaena coronam adlatam imponeret aedilis signo, synodiam gallantes vario recinebant studio. Buecheler.
+*) _Qui dum esse na hora nam adlatam imponeret aedilia signo siae (sie W) et deam gallantes vario retinebant studio HLW._  
+_Qui dum messem hornam adlatam imponeret aedilis signo Cybelae, deam gallantes vario recinebant strepitu._ Riese.  
+_Qui dum messem hornam adlatam imponunt Attidis signo synodiam gallantes vario recinebant studio._ Lachmann.  
+_Qui cum e scaena coronam adlatam imponeret aedilis signo, synodiam gallantes vario recinebant studio._ Buecheler.
 
-*) Cavedoni Bull. delV 1st. Arch. 1844 p. 22.
+*) Cavedoni _Bull. dell' 1st. Arch._ 1844 p. 22.
 
-*) Milnzivesen n. 136.
+*) _Münzwesen_ n. 136.
 
 *) 1 395 n. 18.
 
 To say nothing further of Attis' absence from the literature, inscriptions, and art of the Republic, proof of a more positive nature that he was not worshiped in that period as he was under the Empire is found in Dionysius Halicarnassus (_circ._ 30 B. C.), who, in a passage in which he speaks at length of religion at Rome and especially of the cult of the Great Mother, says that among the Romans there are no festivals of public mourning with wearing of black robes, beating of breasts, and lamentation of women for gods who have disappeared.* Now a festival of this character, in which Attis was mourned, did form, under the Empire, one of the principal events of the annual celebration, and the fact that it did not exist at the end of the Republic can only mean that Attis was not yet worshiped at Rome, for a festival in his honor, as in the case of Adonis, was always a festival of lamentation. The _Fasti Praenestini_, 3-9 A. D., corroborate the testimony of Dionysius.* What positive evidence we possess, therefore, goes to show that Attis was known at Rome under the Republic at the most only in a legendary way.* Varrodid not discuss Attis simply because there was no Attis to discuss. This is the more reasonable in view of the conclusion that the Attis worship was not originally native to Phrygia, but was a derivation from the Aphrodite-Adonis worship from the South, and of comparatively late development.*
 
-*) II 19.
+*) 2 19.
 
-*) C.I. L. I p. 235.
+*) _C. I. L._ 1 p. 235.
 
-*) For a detailed treatment of the question see the author's article on "Was Attis at Borne under the Bepublicf" in 2'ransactions Am. Phil. Ass'n for 1900, pp. 46-59.
+*) For a detailed treatment of the question see the author's article on "Was Attis at Rome under the Republic?" in _Transactions Am. Phil. Ass'n_ for 1900, pp. 46-59.
 
 It has been stated above that the cult of the Great Mother continued to be essentially foreign. The principal cause of this was, of course, the wide difference between oriental and Roman character, which led the Romans, who saw that the influence of the customs of the cult, if allowed to go unrestrained, would be prejudicial to the State, to enact laws to control it. However heartily they supported the cult, there were certain features of it which they could not endure with patience. To say nothing of the enthusiastic nature of the Great Mother's worship, which made it a _superstitio_ in the eyes of the devotees of the purely formal old-Roman religion, the extravagance in the ceremonies and the manner of qualification of the eunuch priests presented cause for objection still more grave. It was therefore from an early period forbidden Roman citizens to engage in the service of the Mother as [GREEK] or as fluteplayers, or to dress fantastically and take part in the orgies according to the Phrygian manner.* A slave of Quintus Servilius Caepio, in 102 B. C., consecrated himself to the service of the goddess by the act of self-emasculation, and was transported for life.* The ensuing year, a certain Genucius, who had likewise entered the service of the Mother, was refused a hearing before the consul Mamercus on the ground that he could be considered neither man nor woman. Genucius is the first Roman citizen known to have become a eunuch priest.* The restrictions on the _mutitationes_ have already been noted.
 
 *) Cf. pp. 217 sq.
 
-*) Dionys. II 19.
+*) Dionys. 2 19.
 
 *) Obsequens 44 (104).
 
-*) Val. Max. VII 7, 6.
+*) Val. Max. 7 7, 6.
 
 But the cult thrived, both under the Republic and under the Empire. And here a few words in answer to the question which persistently presents itself, _viz._ : what could have made possible, among a people whom we have been taught to regard, especially in their early history, as distinguished by seriousness and practical wisdom, and whose character is so often described by the word _gravitas_, the introduction and the generous support of a religion whose nature was so widely different from that of the native Roman religion?
 
 The causes which led to the utterance of the inspired Books were very plain and ordinary. The elaborate ceremony of reception, in which a Scipio and a Claudia figured, representing two great patrician families, and the patronage in general of the patrician class, together with the fact that Publius Cornelius Scipio's desire to head an expedition to Africa seems to have been granted him as a consequence of the prophecy, suggest a political cause. The more probable explanation, however, is to be found in the ambition of the ministers and devotees of the cult itself. Enough of religious zeal the priests of the Mother certainly possessed, but interests of a material nature also played a prominent part. The rich Italian peninsula had afforded homes to one after another of the decaying cults of Greece and Asia Minor, and offered a rich reward tayet other cults which should come. _Dignus Roma locus quo deus omnis eat_ was especially true from the point of view of prosperity, and the _ipsa peti volui_ of the goddess was no doubt literally true.*
 
-*) Ovid Fast. IV 269, 270.
+*) Ovid _Fast._ 4 269, 270.
 
 Further, when the Sibylline Books recommended the introduction of the Great Mother of the Gods the Roman people had for thirteen years been in deadly grapple with a powerful enemy who had harrassed them under their very walls, and although he had been checked, he was still on their soil, drawing his supplies from their fields. It was when they were galled and jaded, uncertain as to the future, ready to see in every natural phenomenon an omen and in every oracular utterance an expression of the divine will, that the Books prescribed the remedy for the national evil. Even had the Komans been fully aware of the nature of the religion they were about to allow entrance into the State, they would nevertheless" have accepted it. This was not the first time the Books had spoken with authority and been implicitly obeyed. The readiness with which Greek divinities had been received and identified with oldRoman divinities has been noted above; a numerous circle of gods and goddesses owed their introduction at Rome to the Books. Among them was Aesculapius, who had caused the plague to cease on his arrival in 291, and in the more severe affliction of the last twenty years of the same century it was only natural that the oracle of 293 should have great influence.
 
 Another cause for the readiness with which the cult of the Mother was received is found in the fact that in her character of Earth-mother she was not unlike divinities already honored at Rome. Among these may be mentioned Ceres. That the Mother was to her worshipers first of all a naturedivinity is indicated by the character of the ordinary offering to her, the _moretum_. To a people living in the center of a fertile _campagna_ with its luxuriance of vegetation, and surrounded by hills clad with olive, fruit, and vine, the advent of a benign goddess of nature with promises of peace and plenty would naturally be hailed with joy. Still greater was the resemblance of the Mother to Maia and Ops, with whom, indeed, she became identified. 68 Add to this her identification with Rhea, the wife of Saturn and the mother of Jupiter, and the Romans considered themselves performing an act of justice in welcoming the goddess to her right. As Augustine humorously says: _Mater etiam Deum nescio unde a Pessinunte; indignum erat enim ut, cum eius filius iam colli Capitolino praesideret, adhuc ipsa in loco ignobili latitaret_.* In this identification of the Mother with divinities already known at Rome, and in her supposed Trojan origin and connection with the founders of the Roman nation, is to be sought the explanation of the fact that her temple was erected inside the _pomerium_.*
 
-*) Macrob. 1 12, 20: (Maia) et Mater Magna in sacris vocatur; cf. _Ibid._ 21, where Maia equals Ops.
+*) Macrob. 1 12, 20: _(Maia) et Mater Magna in sacris vocatur_; cf. _ibid._ 21, where Maia equals Ops.
 
 Once introduced, fortune favored the goddess. In the very year in which she first saw Rome, the effect of her benign presence was such that the produce of the fields exceeded that of any year of the preceding ten.* Still more important for her was the fact that the war was carried into Africa. Hannibal was compelled to leave Italy, the struggle between Carthage and Rome was brought to a successful close, and the pledge made by the Sibylline Books in behalf of the Mother was redeemed. The building of her temple went forward, and the cult soon had its own home. On various occasions the deity predicted success to the Roman arms, and her predictions came true.* Vows were made by Roman generals and discharged at Pessinus.* The Mother even entered into the politics of the nation to some extent.* What if some of the practices of the cult were scandalizing to the staid Romans of the old style? What if one detail was revolting to every Roman? The ministers of the religion, not the religion itself, were no doubt blamed for that. What with her generous hand in the harvests, her powerful arm against the invader, what with patrician patronage and plebeian superstition, what with an occasional well managed demonstration of the severity of her displeasure against the irreverent; and what indeed with a great deal of real reverence, directed to her as a chaste goddess, the Mother of all being, it is not difficult to understand how the Great Mother won and kept her place among the Romans.
 
-*) De Civ. Dei III 12.
+*) _De Civ. Dei_ 3 12.
 
-*) Marq. Ill 370.
+*) Marq. 3 370.
 
-*) Plin. N. H. XVIII 16.
+*) Plin. _N. H._ 18 16.
 
-*) Livy XXXVII 9, 8-10; Polyb. XXI 6.
+*) Livy 37 9, 8-10; Polyb. 21 6.
 
 *) Val. Max. 1 1, 1.
 
-*) Dio Cass. XLVI 33; XLVIII 43.
+*) Dio Cass. 46 33; 48 43.
 
 # 4\. The Cult of the Great Mother under the Empire.
 
 Under the Empire the cult of the Great Mother rapidly rose to a high degree of prominence. Lucretius, Catullus, and Cicero reflect the interest already felt in it in the last year of the Republic, and there are few authors of the early Empire who do not allude to it with more or less fullness. The beautiful account of Livy has been noticed; Vergil's account of the Mother's protection of Aeneas' ships is no less charming*; Horace mentions her rites by way of illustration*; Propertius recites the story of Claudia*; Hyginus explains the origin of the use of the cymbals and the tympanum*; Phaedrus gives the fable of the Ass and the _Galli_*; and that Maecenas, who was wont to interest himself in all that was attempted in the literary world, wrote a poem in galliambics on Cybele, indicates the interest which was felt in the cult.* But Ovid reflects more fully than any author preceding him the quickening interest. The space in the _Fasti_ devoted to the story of the introduction of the cult and the explanation of the origin and significance of its rites would be out of proportion had not the religion of the Mother been among the very first in interest.* However, as under the Republic, the annual celebration consisted of but one day, April 4th, followed by the _Megalensia_.* Nor is Attis other than merely the Attis of the legend; he does not yet exist at Rome as a divinity side by side with the Mother, sharing her worship.
 
-*) Aen. IX 77 sqq.
+*) _Aen._ 9 77 sqq.
 
-*) C. 1 16, 5; 18, 13; III 19, 18.
+*) _C._ 1 16, 5; 18, 13; 3 19, 18.
 
 *) 5 11, 51.
 
-*) CXXXIX.
+*) 139.
 
-*) IV 1.
+*) 4 1.
 
-*) Baehrens Frag. Poet. Rom. Maecenas 4.
+*) Baehrens _Frag. Poet. Rom._ Maecenas 4.
 
-*) Fast. IV 318.
+*) _Fast._ 4 348.
 
 The fruit of this quickened interest was the introduction of new features into the worship and the elevation of the cult to the acme of prosperity. The way of its progress was made straight by the favor of the Emperors themselves. The temple on the Palatine having been burned in A. D. 3, Augustus rebuilt it.* Livia was represented as Cybele on a gem, and coins were struck by Tiberius and Claudius with representations of the Mother.* To Claudius was due the step which established a complete cycle of events for the annual celebration, which henceforth remained the same up to the fall of the worship before Christianity. The complete cycle which had the _Lavatio_ for its culmination, was no doubt the Phrygian cycle, now introduced in its fullness. Arrian, at the close of the first century A. D., states that certain features of the annual festival were performed according to the Phrygian custom,* and Servius also says that the Romans conducted the worship _Phrygio more_.* From this time on Attis was no longer merely legendary, but was honored as a divinity together with the Mother, occupying much the same position as Adonis in the AphroditeAdonis cult in the East. And not only was the original one day of the festival extended to a longer period, but the date was changed. The first day of the celebration was March 15th, and the remaining five events of the cycle occurred at intervals up to the 27th, when the _Lavatio_ ended the series. The _Megalensia_, however, continued to be celebrated April 5th-10th. The _Fasti Philocali_, dating from 354 A. D., give the days of the cycle in order, and Lydus is authority for the introduction of the new features by Claudius.*
 
-*) Fast. Praen. and Maff., Apr. 4-10.
+*) _Fast. Praen._ and _Maff._, _Apr. 4-10_.
 
-*) Val. Max. I 8, 11; Ovid Fast. IV 348; Res Gestae Divi Augusti IV 8.
+*) Val. Max. 1 8, 11; Ovid _Fast._ 4 348; _Res Gestae Divi Augusti_ 4 8.
 
-*) Imhoof 229 no. 759 tab. 13 no. 13; Mionnet VII 555, 318. Tiberius kept in his sleeping chamber the portrait of an Arehig alius by Parrhasius of which he was especially fond and which he valued at 6,000,000 sesterces. Plin. N. H. XXXV 70.
+*) Imhoof 229 no. 759 tab. 13 no. 13; Mionnet 7 555, 318. Tiberius kept in his sleeping chamber the portrait of an _Archigallus_ by Parrhasius of which he was especially fond and which he valued at 6,000,000 sesterces. Plin. _N. H._ 35 70.
 
-*) Taet. 33, 4.
+*) _Tact._ 33, 4.
 
-*) Ad Aen. XII 836. Tradition attributed the founding of the annual festival to Agdistis in Pessinus. Arn. V. 7.
+*) _Ad Aen._ 12 836. Tradition attributed the founding of the annual festival to Agdistis in Pessinus. Arn. 5. 7.
 
 It is possible under the Empire to speak with greater definiteness of the government, ceremonial, and progress of the cult. By the first century A. D. it was one of the most popular and most favored of foreign religions. It had been forbidden Roman citizens to take part in the worship according to the Phrygian rites, but as has been seen, a Roman consecrated himself to the service of the Mother as early as 101 B. C, and by the time of the Empire the restrictions which had been placed upon the early cult had become obsolete or had been removed. The _quindecimviri_, in company with many other leading citizens, formed part of the procession on the great day of the annual celebration*; altars were dedicated to the Mother as votive offerings in behalf of the safety of the Emperors, the donors being persons of good family*; names of men and women apparently of good standing in Roman society appear among the names of the ministry and followers of the cult especially after the second century*; even the _Archigallus_ bore a Roman name under the Empire,* and his title _Attis populi Romani, Atus publicus populi Romani Quiritium_ indicates the heartiness with which the State sanctioned the worship.*
 
 Like other foreign cults, the cult of the Great Mother was under the control of the _quindecimviri sacris faciundis_, which body at least had power to appoint and equip priests in all parts of Italy, whether they always exercised it directly or not.* Those directly appointed and equipped with insignia by them were called _sacerdotes quindecimvirales_.* The colleges of the _dendrophori_ were also under their control.* The _quindecimviri_ participated officially in the annual celebration. The _stips_, or collection from house to house, continued to be the source of support.*
 
-*) De Mens. IV 41; [GREEK].
+*) _De Mens._ 4 41; [GREEK].
 
-*) Prud. Peristeph. X 153 sqq.; Lucan I 599.
+*) Prud. _Peristeph._ 10 153 sqq.; Lucan 1 599.
 
-*) C. I. L. XIII 1751.
+*) _C. I. L._ 13 1751.
 
-*) _Ibid._ VI 494, 497-9, 2183, 2257.
+*) _Ibid._ 6 494, 497-9, 2183, 2257.
 
-*) _Ibid._ 2183; XIV 34, 35, 385.
+*) _Ibid._ 2183; 14 34, 35, 385.
 
-*) _Ibid._ VI 2183, 511.
+*) _Ibid._ 6 2183, 511.
 
 At the head of the ministry stood the _Archigallus_, or high priest. A relief of an _Archigallus_, found between Lanuvium and Genzano and now in the Capitoline Museum, shows a man of effeminate features, dressed in a long-sleeved garment. The hair is arranged like that of a woman, there are pendants in the ears, and a veil hangs from the head to the shoulders on either side. Over the veil is a garland or
 crown with three medallions, the middle one, over the forehead, containing a bust of Idaean Zeus, those at the sides, over the ears, busts of Attis. From under the veil, on either side, double string-like fillets descend over the breast and body. A band with a clasp formed by two serpent heads joined by a ring is worn as a necklace, and beneath on the breast hangs a shrine-like frame with a bust of Attis. On the left shoulder is a scourge, the carved handle ending at either extremity in a bearded head, and the three thongs being provided at close intervals with rough pieces of bone to make the instrument more effective. In the left hand is a shell-like dish containing a pine cone and what seems to be almonds, both of which were of significance in the rites of the religion. In the right hand, which is held upright at the side, is an object whose nature is not certain, the upper extremity of which resembles a pomegranate. From this part rise three slender twigs. Other objects represented are the cymbals, the tympanum, the straight and the curved flutes, and a cylindrical _cista_ with a conical top. The effeminate appearance of the priest is the most striking feature of the representation. Inscriptions attest _Archigalli_ at Rome, Ostia, Capua, Capodistria, Emerita, Iader in Dalmatia, Tournay, Lugdunum, and Portus.* At Rome he is also called _Attis populi Romani_ and _Atus publicus populi Eomani Quiritium_.* His name is Roman, although he is inscribed once as _Sac. Phryg. Max._* Sacrifices are made _ex vaticinatione Archigalli_.* He seems to have been in charge of the most important branches of the cult, such as those at Rome and Ostia, or of districts.
 
-*) C. I. L. X 3698; XIII 1751.
+*) _C. I. L._ 10 3698; 13 1751.
 
-*) _Ibid._ IX 981, 1538; X 4726.
+*) _Ibid._ 9 981, 1538; 10 4726.
 
-*) _Ibid._ X 3699.
+*) _Ibid._ 10 3699.
 
-*) _Ibid._ XII 4321.
+*) _Ibid._ 12 4321.
 
-*) C. I. L. VI 2183; XIV 34, 35, 385; X 3810; V 488; II Supp, 5260; III 2920a; XII 1782 and XIII 1752; Frag. Va t. §148.
+*) _C. I. L._ 6 2183; 14 34, 35, 385; 10 3810; 5 488; 2 _Supp._ 5260; 3 2920a; 12 1782 and 13 1752; _Frag. Vat._ §148.
 
-*) C. I. L. VI 511, 2183.
+*) _C. I. L._ 6 511, 2183.
 
 *) _Ibid._ 508.
 
-*) _Ibid._ VIII 8203; XIII 1752.
+*) _Ibid._ 8 8203; 13 1752.
 
 Corresponding to the _Archigallus_, but apparently rarer, was the _Sacerdos Maxima_, who is mentioned in two inscriptions, both of which are Roman.* One is on an altar dating from 383 A. D., while the other is on the base of a relief in the Vatican which was a votive offering. In a niche formed by a shell is the half-figure of a priestess who is in the act of pouring a libation from a patera in her right hand upon a small round altar on the base of which is an eagle in relief. In her left hand she holds a garland of oak leaves. Her head is veiled, the ends of the veil descending over either shoulder, and fillets, changed by a modern sculptor into braids of hair, formerly hung from either side under the veil.* The figure is fully draped, and on the breast is a bust of Idaean Zeus. The inscription reads: _Laberia Felicia Sacerdos Maxima Matris Deum M. I._
 
 The ministers of ordinary rank were sometimes men, sometimes women, the former being the castrated _Galli_. Their garb was similar to that of the high priest and high priestess --- garments of various bright colors, necklaces, images, _etc._* The _occabus_, defined by Hesychius as [GREEK], and the _corona_, a golden crown with medallions, were sometimes presented by the _quindecimviri_.* There were _sacerdotes primi_* and _sacerdotes secundo loco_* and _consacerdotes_.* A priest at Ostia was minister of both the Great Mother and Isis, and one at Brundisium of these two and Dea Syria.* There is little evidence as to the period of service. A priest at Lugdunum has _perpetuitatem sacerdotii_ bestowed upon him by decree of the _ordo Lugdunensis_.*
 
-*) _Ibid._ VI 502, 2257.
+*) _Ibid._ 6 502, 2257.
 
-*) Visconti Museo Pio-Clem. VII p. 104.
+*) Visconti _Museo Pio-Clem._ 7 p. 104.
 
-*) Dionys. Hal. II 19; Ovid Fast. IV 339.
+*) Dionys. Hal. 2 19; Ovid _Fast._ 4 339.
 
-*) C. I. L. X 3698; XIII 1751.
+*) _C. I. L._ 10 3698; 13 1751.
 
-*) _Ibid._ IX 1541.
+*) _Ibid._ 9 1541.
 
 *) _Ibid._ 1538, 1541.
 
 *) _Ibid._ 1540.
 
-*) _Ibid._ XIV 429; IX 6099.
+*) _Ibid._ 14 429; 9 6099.
 
-*) _Ibid._ XIII 1751.
+*) _Ibid._ 13 1751.
 
 Among the official servants of the Mother were the _tibicen_, _tympanistria_, and the _cymbalistria_, whose titles are selfexplanatory. The name of the _tibicen_ Flavius Restitutus, of Lugdunum, is recorded side by side with that of the officiating priest in the memorial of a _taurobolium_, and that of the _cymbalistria_ Secunda, of Tergeste, is likewise inscribed with that of the priest of the cult.* The name of the _aedituus_ Gaius Publicius Hermes is also found in the Tergeste inscription. Gnaeus Pompeius Probus, a _curator templi_, dedicates an altar to the Mother.* The titles _aedituus_ and _curator templi_ denote the same office.* Flavia Tyche, in Olisipo, Lusitania, is a _cernophora_, or bearer of the sacrificial vessel, the [GREEK].* The office of _apparator_ is twice mentioned.* Quintus Nunnius Telephus was a _magister collegii cultorum_ at Rome.* Finally, an inscription records the name of Tiberius Claudius Velox, _hymnologus primus Matris Deum Idaeae et Attinis publicus_, whose duty was the composition of the Greek hymns sung in the service of the Mother.*
 
 Besides single individuals officially connected with the cult were the _collegia_ of the _cannophori_ and the _dendrophori_. Both were bodies whose object was to further the prosperity of the cult, and both were prominent in the annual festival, the former on March 15th, and the latter on March 22nd. The former consisted of men at Ostia, _corpus cannophorum Ostiensium_, at Locri, _collegium cannofororum_, and at Mediolanium, _collegium cannoforum_; but the college was sometimes formed of women, as at Saepinum, _collegium canoforarum_.* The designation is to be derived from [GREEK] or [GREEK], _canna_, a reed, defined by Columella as a plant smaller than the _arundo_, but larger than the _calamus_.* That they were reed-bearers, as the _dendrophori_ were treeor branch-bearers, is highly probable.* In one of the colleges at Ostia there seem to have been an official _pater_ and _mater_.* In connection with the Metroon in the same city, the _cannophori_ had a _schola_,* and were the recipients of complimentary gifts, usually images of the Mother or of Attis, at the hands of the _Archigallus_ or patrons of the cult.* Of the _collegia dendrophororum_ attested by inscriptions, only a part were connected with the cult of the Great Mother, others belonging to the worship of other divinities, and still others being merely societies of workmen with no religious significance. Those in the service of the Mother at Cumae, and presumably throughout Italy, were under the control of the _quindecimviri_.* They officiated in the annual celebration, their part being the bearing of the sacred pine to the temple on the Palatine.* They had a _schola_ in connection with the Metroon at Ostia, and fragments of an inscription giving the roll of membership contain the names of many prominent citizens.* There was an _archidendrophorus_ in Mysia, but the title occurs only the one time.* The _sodales ballatores_, once mentioned, were perhaps the _Galli_.*
 
-*) _Ibid._ XII 1782 and XIII 1752; V 519; VI 2264.
+*) _Ibid._ 12 1782 and 13 1752; 5 519; 6 2264.
 
-*) C. I. L. XII 5374.
+*) _C. I. L._ 12 5374.
 
-*) Marq. Ill 214.
+*) Marq. 3 214.
 
-*) C. 1. L. II 179; Athen. XI 476.
+*) _C. I. L._ 2 179; Athen. 11 476.
 
-*) C. I. L. XIII 1754; XIV 53.
+*) _C. I. L._ 13 1754; 14 53.
 
-*) _Ibid._ VI 494.
+*) _Ibid._ 6 494.
 
-*) Bull, dell' 1st. 1884 p. 154.
+*) _Bull. dell' Ist._ 1884 p. 154.
 
-*) C. I. L. XIV 34-37, 40, 116-119, 284, 285; X 24; V 5840; IX 248.
+*) _C. I. L._ 14 34-37, 40, 116-119, 284, 285; 10 24; 5 5840; 9 2480.
 
-*) Col. VII 9, 7; IV 32, 3.
+*) Col. 7 9, 7; 4 32, 3.
 
-*) Visconti Annates 1869 p. 242 sq.
+*) Visconti _Annates_ 1869 p. 242 sq.
 
-*) C. I. L. XIV 37.
+*) _C. I. L._ 14 37.
 
 *) _Ibid._ 285.
 
 *) _Ibid._ 34-37, 119.
 
-*) _Ibid._ X 3699.
+*) _Ibid._ 10 3699.
 
-*) Lyd. DeMens. IV 41.
+*) Lyd. _De Mens._ 4 41.
 
-*) C. I L. XIV 45; 281-283.
+*) _C. I. L._ 14 45; 281-283.
 
-*) _Ibid._ Ill 763.
+*) _Ibid._ 3 763.
 
-*) _Ibid._ VI 2265.
+*) _Ibid._ 6 2265.
 
 The annual festival at Rome as completed in the reign of Claudius began with the return of spring. The first day was the Ides of March, and is designated in the _Fasti Philocali_ as _canna intrat_. The ceremony of the day consisted in the sacrificing of a six-year-old bull in behalf of the fields in the mountains, the high priest, a priestess, and the college of the _cannophori_ officiating.* The significance of the _cannophori_ is indicated by a relief on a marble found in the Metroon at Ostia. It is cut in the shape of a _cista_, and shows Attis concealing himself in a growth of reeds, while the lions of the Mother and a shepherd's pipe are represented near by. One form of the legend relates that Attis as a child was exposed by the reedy banks of the Gallus and that Cybele found him there. The _cannophori_, then, bear reeds in commemoration of that event, and the ceremony is probably only the weak reflection of an orgiastic ceremony of the Phrygian priests on the banks of the river Gallus.* The second day of the festival was the 22nd of March, designated in the _Fasti Philocali_ as _arbor intrat_. On this day the sacred pine, the emblem of Attis' self-punishment, was borne by the _dendrophori_ to the temple on the Palatine,* its trunk wound with fillets of wool and its branches hung with garlands of violets to commemorate the wrapping of Attis' body in wool by Ia and the decking of the original tree by the Mother with the violets which sprang from his blood.*
 
 After an interval of one day, the celebration continued on March 24th with the _Dies sanguinis_* or _Sanguem_,* a day of mourning and fasting.* As the preceding day of the celebration had seen the bearing of the sacred pine, representing the tree under which Attis died, into the temple, representing the cave into which the Mother bore the original tree, so this day commemorated the grief of the Mother at her loss --- the grief of Mother Earth at the death of her vegetation --- and her abstinence from food while her sorrow was at its height.* Besides the fasting, the special feature of the day was the ceremony of mourning, in which the _Archigallus_ and priests, their minds stirred to the climax of religious frenzy by orgiastic dance and song, aided by fasting, lacerated their arms in commemoration of the final deed of Attis. The orgiastic nature of the ceremony was especially prominent. According to Martial, _saevis lacerantur bracchia cultris, Cum furit ad Phrygios enthea turba modos_.* The priests of Dea Syria, whose cult so closely resembled that of the Mother, are thus described: _absonis ululatibus constrepentes fanatice pervolant diuque capite demisso cervices lubricis intorquentes motibus crinesque pendulos in circulum rotantes et non nunquam morsibus suos incursantes musculos ad postremum ancipiti ferro quod gerebant sua quisque bracchia dissicant. Inter haec unus ex illis bacchatur effusius ac de imis praecordiis anhelitus crebros referens velut numinis divino spiritu repletus simulabat sauciam vaecordiam, etc._* It was while at the height of religious frenzy that Phrygian priests in their own country lacerated, and even emasculated themselves, and the Roman ceremony is only an imitation of it. The emasculation of priests by their own hands, however, is not attested as taking place in the Roman cult, though the _Dies sanguinis_ was the day on which the _Galli_ suffered the final act of consecration and became ministers of the cult.*
 
-*) Lyd. Be Mens. IV 36: [GREEK].
+*) Lyd. _De Mens._ 4 36: [GREEK].
 
-*) De Ruggiero Biz. Epig. s. v. eannophorus; Jul. Or. V 165 sq.
+*) De Ruggiero _Diz. Epig._ s. v. _cannophorus_; Jul. _Or._ 5 165 sq.
 
-*) Lyd. Be Mens. IV 41: [GREEK].
+*) Lyd. _De Mens._ 4 41: [GREEK].
 
-*) Arnob. V 7, 16.
+*) Arnob. 5 7, 16.
 
-*) Treb. Poll. Claudius IV.
+*) Treb. Poll. _Claudius_ 4.
 
-*) Fast. Phil.
+*) _Fast. Phil._
 
-*) Arnob. V 16.
+*) Arnob. 5 16.
 
-*) Ibid.
+*) _Ibid._
 
-*) XI 84, 3.
+*) 11 84, 3.
 
-*) Apuleins Metam. VII 27, cf. Arnob. 1. c: pectoribus adplodentes palmaspassis cum crinibus Galli.
+*) Apuleins _Metam._ 7 27, cf. Arnob. _l. c._: _pectoribus adplodentes palmas passis cum crinibus Galli_.
 
-*) Jul. Or. V 168 C, D.
+*) Jul. _Or._ 5 168 C, D.
 
 The next day, March 25th, was the first day in which daylight exceeded darkness, and was fittingly observed as the day of rejoicing, _Hilaria_. _Simulatione luctus peracta_, says Macrobius, _celebratur laetitiae exordium a. d. octavum Kalendas Aprilis. Quem diem Hilaria appellant, quo primum tempore sol diem longiorem nocte protendit_.* The day was one of the great _festas_ of Rome.* _Hilaria_ in general are described as days of especial gladness, celebrated by all the people in common, as when a king has proclaimed a public holiday. The wearing of mourning was not permitted; f all laid it aside, attended the spectacles and sacrifices which were always the order of the day, and passed the time in unbroken good cheer.*
 
@@ -648,17 +651,17 @@ The day following the _Hilaria_ is designated in the _Fasti Philocali_ as _Requi
 
 The next day, March 27th, the last of the celebration, was the occasion of the crowning ceremony of the cycle. It is known in the _Fasti_ as _Lavatio_, and was the ceremony of longest standing in the Roman cult, having been a feature of the Asiatic cult* and probably brought to Rome with the goddess herself. On this day the image of the Mother, in a procession at the head of which were the _quindecimviri_,* was conducted to the Almo, a small stream a short distance south of the Palatine outside the present Porta San Sebastiano, where the image and the sacred utensils were laved. Prudentius describes the procession in the last years of Paganism. The meteoric stone which represented the Mother, set in a statue of silver, was borne in a chariot before which walked, barefooted, the leading citizens.* The strewing of flowers, the garlanding of the goddess and her attendants, the burning of incense, the abundance of gifts, the presence of gorgeously robed priests and priestesses with their orgiastic instruments --- features characteristic of the processions in the worship of the goddess* --- doubtless marked this procession also. Everything that wealth or art could supply was used on the occasion, says Herodian.* At the conclusion of the ceremony at the stream, the Mother herself ceased to mourn, and her whole train and all the city gave themselves up to merrymaking.* Scenic representations formed a prominent part of the festivities, at least in the last century of Paganism. Arnobius, inveighing against the games celebrated in connection with the Pagan worship, alludes to scenic representations of the Mother and Attis, especially the latter, as though they were extremely common --- _Attis ille... quem in spectaculis ludicis theatra universa noverunt_. --- _Illa Pessinuntia Dindymene in bubulci unius amplexum flagitiosa fingitur adpetitione gestire_. --- _Lenior Mater Magna efficitur, si Attidis conspexerit priscam refricari ab histrionibus fabulam?_*
 
-*) Sat I 21, 10.
+*) _Sat._ 1 21, 10.
 
-*) Vopisc. Aurel. I; Lamprid. Alex. Sev. XXXVII 6.
+*) Vopisc. _Aurel._ 1; Lamprid. _Alex. Sev._ 37 6.
 
-*) Scholia Maximi p. 319.
+*) _Scholia Maximi_ p. 319.
 
-*) Marq. Cyzicus und sein Gebiet 100; C. I. G. 3657.
+*) Marq. _Cyzicus und sein Gebiet_ 100; _C. I. G._ 3657.
 
-*) Lucan I 599 sq.
+*) Lucan 1 599 sq.
 
-*) Perist. X 154 sqq.
+*) _Perist._ 10 154 sqq.
 
 Another rite of great importance, not, however, always a part of the annual festival, was the _taurobolium_, the sacrifice of a bull, or its variation the _criobolium_, the sacrifice of a ram.* The rise of the ceremony dates from the early part of the second century A. D., as the first evidence of its existence is an inscription of the reign of Hadrian, in the year 133, found at Naples.* There is no mention of the sacrifice of bulls in the service of the Mother, nor is the elaborate ceremony of the _taurobolium_ attested as being performed in Phrygia or Greece before this date. The fact, then, that the first known occurrence of the rite was in Italy and that it is next heard of in Gaul, and is not attested for Greece and other provinces until still later, signifies that Rome, even if it did not originate this elaborate form of sacrifice, was at least the place where it rose into prominence, and the center from which it was disseminated. It spread rapidly throughout Italy and to all parts of the Empire, and was one of the most important rites of the cult up to the fall of Paganism. A description of the _taurobolium_ as it was performed in the 4th century A. D. is put by Prudentius into the mouth of Romanus the Martyr.* The high priest, his temples richly adorned with fillets, a golden crown on his head, his toga girt _cinctu Gabino_, descends into a deep trench completely covered with a platform of planks pierced by a large number of holes. On this platform is led a huge bull, garlanded with flowers, his front gleaming with gold. His breast is pierced by the consecrated spear, and the torrent of hot, steaming blood floods the covering of the trench and rains through the thousand chinks and perforations on the expectant priest below, who throws back his head the better to present his cheeks, his ears, lips, nostrils --- nay, even his tongue and palate --- to the purifying bath. When life has fled and left cold the body of the slain bullock and the flamens have removed it, the priest emerges, and with beard, hair, and vestments dripping with blood, presents himself to the expectant throng of worshipers, who salute and do obeisance to him as to one who has been purified.
 
