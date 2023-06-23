@@ -367,75 +367,75 @@ In all probability because the Romans lacked time and means, while under the str
 
 In default of a temple consecrated to her own worship, the Great Mother was received as a guest in the temple of Victory on the western slope of the Palatine --- an a,bode well chosen for a goddess whose intercession was to drive the Carthaginian from Italy, and in a location the best the Romans could offer as a substitute for the beloved mountain heights to which she had been accustomed. The same year, in obedience to a decree of the Senate, the censors Marcus Livius and Gaius Claudius contracted for the building of a temple. It was completed in 191 B. C., the ceremony of dedication being performed by Marcus Junius Brutus on the 10th of April, thirteen years and six days after the arrival of the Mother in Rome. The site of the temple was on the summit of the Palatine, not far from the temple of Victory, its front overlooking the valley of the Circus Maximus and its side the Velabrum.* It was probably at this time that the original one day of the _Megalensia_ was lengthened to seven, beginning with the 4th of April, the anniversary of the arrival, and ending with the 10th, the day of the dedication.*
 
-*) Cic. Be Harnsp. Resp. 12, 24, cf. Fast. Praen. Apr. 4; but Varro L. L. VI 15 derives the word from Megalesion, the temple of the Mother at Pergamum.
+*) Cic. _De Harusp. Resp._ 12, 24, cf. _Fast. Praen._ Apr. 4; but Varro _L. L._ 6 15 derives the word from _Megalesion_, the temple of the Mother at Pergamum.
 
-*) Cic. De Senec. 13, 45.
+*) Cic. _De Senec._ 13, 45.
 
 Direct evidence bearing on the progress of the cult under the Republic is almost entirely lacking, and were there no notices dating later than the time of Cicero, it would hardly be possible to form an intelligent conjecture as to its career. The comic poets naturally afford nothing of importance on the subject, for the reason that their works are scarcely more than translations. Had the comedies of Plautus been less entirely Greek, it might be expected that some stray phrase would have crept in to throw light upon the worship of the Mother. The Eunuchus, Heauton Timorumenos, Phormio, and Hecyra of Terence were presented during the _Megalensia_, but all are silent concerning the divinity in whose honor they were enacted. Of Afranius is preserved a part of one verse which may or may not refer directly to the Roman cult,* but the literature as well as the art and the inscriptions of the first hundred years of the history of the cult at Rome afford no information as to its growth.
 
 That it thrived, however, is indicated with sufficient certainty by the fact of the completion and dedication of a temple and the prolongation of the period of the games. Other circumstances also indicate the standing of the cult among the Romans. At the siege of Sestos in 190 B. C., priests of the Great Mother approached the Roman commander and besought him to spare the city.* The following year, when Gnaeus Manlius was crossing the Sangarius with his army, _Galli_ of the Mother came to him predicting victory for the Roman arms.* In 111 B. C. the temple on the Palatine was burned, and Metellus rebuilt it.* Valerius Maximus says that many commanders vowed pilgrimages to Pessinus, and Marius is said to have undertaken one.* Early in the first century B. C., in spite of the law forbidding it, a Roman citizen became a eunuch and devoted himself to the priesthood of the Mother.* She begins to figure on coins about 83 B. C.* In the last days of the Republic her image on the Palatine showed the divine displeasure by turning around on the eve of Pansa's departure for the Mutina campaign.* In 38 B. C, in accordance with an order of the Sibylline Books, the _Lavatio_, or annual bathing of the goddess, took place in the sea instead of in the Almo.* Cicero complains of the loss of the original purity of the worship, and speaks of the collection of money by priests as a serious drain on the finances of the people.*
 
-*) Huelsen in Rom. Mitth. 1895, 25 sqq.
+*) Huelsen in _Röm. Mitt._ 1895, 25 sqq.
 
-*) The Pseudolus of Plautus was probably presented on this occasion. Preller Rom. Myth. 448.
+*) The _Pseudolus_ of Plautus was probably presented on this occasion. Preller _Röm. Myth._ 448.
 
-*) Ribbeck Frag., A/ran. 218.
+*) Ribbeck _Frag._, _Afran._ 218.
 
 There are, however, two especially significant notices regarding the cult in the second century B. C. The custom of giving banquets in remembrance of the introduction of the Mother, a development of the _sodalitates_, had early become a prominent feature of the annual celebration. They were denominated _mutitationes_ because they were mutual, the members of the society acting as hosts each in his turn. Similar _mutitationes_ were given during the _Cerealia_, but these were plebeian, while those of the _Megalensia_ were patrician.* The latter soon became the occasion of prodigality so great as to call for regulation at the hands of the State; and a senatus consultum in the consulship of Gaius Fannius and Marcus Valerius Messala, 161 B. C., required those leading men of the State --- _principes civitatis_ --- who should give mutual banquets according to the old custom during the _Megalensia_ not to exceed the expenditure, for each banquet, of one hundred and twenty _asses_ besides oil, meal, and wine, not to use imported wine, and not to use more than one hundred _librae_ of silver.*
 
-*) Livy XXXVII 9, 8-10; Polyb. XXI 6.
+*) Livy 37 9, 8-10; Polyb. 21 6.
 
-*) Polyb. XXI 37.
+*) Polyb. 21 37.
 
-*) Val. Max. I 8, 11; Ovid Fast. IV 348.
+*) Val. Max. 1 8, 11; Ovid _Fast._ 4 348.
 
-*) Val. Max. I 1, 1; Cic. De Harusp. Resp. 13, 28.
+*) Val. Max. 1 1, 1; Cic. _De Harusp. Resp._ 13, 28.
 
-*) Val. Max. VII 7, 6.
+*) Val. Max. 7 7, 6.
 
-*) Babelon I 526, 19; II 312, 3; 324, 13; cf . note 92 p. 318.
+*) Babelon 1 526, 19; 2 312, 3; 324, 13; cf. note 92 p. 318.
 
-*) Dio Cass. XLVI 33.
+*) Dio Cass. 46 33.
 
-*) _Ibid._ XLVIII 43.
+*) _Ibid._ 48 43.
 
-*) De Leg. II 16, 40. Stipem sustulimus nisi earn quam ad paucosdies propriam Idaeae Matris excepimus; implet enim superstitione animos et exhaurit domus.
+*) _De Leg._ 2 16, 40. _Stipem sustulimus nisi eam quam ad paucos dies propriam Idaeae Matris excepimus; implet enim superstitione animos et exhaurit domus._
 
 The second notice occurs in Diodorus Siculus, and is repeated, in a slightly different form, by Plutarch.* According to the account of Diodorus, Battaces, a priest of the Great Mother at Pessinus, arrived in Rome during the closing years of the second century, commissioned by the goddess herself, as he said. He was attired in a manner contrary both to the customs and the laws of Rome; he wore a huge golden crown, and his robes, flowered and embroidered in gold, were like those of a king. He was entertained at the public expense, and presented with the gifts usually bestowed upon guests of the State. Having gained an audience before the magistrates and the Senate, he declared that, the statue of the goddess having been profaned, public expiation must be made. He descended into the Forum, where he harangued the people and endeavored to inspire them with superstitious fears. Evidently his presence was not agreeable to all, for Aulus Pompeius, a tribune of the people, forbade him to wear the crown, and. another tribune, questioning him in public as to the expiation he .had. directed, elicited responses so fanatical that the crowd, urged on by Pompeius, began to threaten him, whereupon he withdrew in fear to his apartments, giving out that the Mother had been insulted in his person. Shortly afterward, the impious tribune was seized with a burning fever and an attack of quinsy which deprived him of his voice. He died on the third day of his illness, and the people, seeing in his death a manifestation of the wrath of the Mother, passed from the one extreme to the other, gave Battaces leave to wear his magnificent vestments, presented him with rich gifts, and on his departure accompanied him in throngs as far as the city gates.*
 
-*) Aul. Gell. XVIII 2, 11.
+*) Aul. Gell. 18 2, 11.
 
-*) _Ibid._ II 24, 2: lubentur principes civitatis, qui ludis Megalensibus antico ritu l mutitarent, id est mutua inter sese dominia agitarent, iurare apud eonsules verbis conceptis, non amplius in singulas cenas sumptus se esse facturos quam centenos vicenosque aeris praeter olus et far et vinum, neque vino alienigena. sed patriae usuros, neque argenti in eonvivio plus pondo quam libras centum inlaturos.
+*) _Ibid._ 2 24, 2: _Iubentur principes civitatis, qui ludis Megalensibus antico ritu 'mutitarent,' id est mutua inter sese dominia agitarent, iurare apud consules verbis conceptis, non amplius in singulas cenas sumptus se esse facturos quam centenos vicenosque aeris praeter olus et far et vinum, neque vino alienigena sed patriae usuros, neque argenti in convivio plus pondo quam libras centum inlaturos._
 
-*) Diod. Frag, of XXXVI; Plut. Mar. 17.
+*) Diod. _Frag._ of 36; Plut. _Mar._ 17.
 
 The regulation of expenditure in the _mutitationes_ is significant as indicating the tendency of the celebrations in connection with the cult toward luxury. Further, since these banquets were given by patrician devotees --- _principes civitatis_ --- rather than by plebeians, who gave theirs during the _Cerealia_, it is evident that the cult was to some extent under the special patronage of the aristocracy. The story of Battaces confirms this. He gained admission to the Senate and the magistrates; he arrogantly wore his gorgeous robes and immense golden crown in the face of the law and public opinion; and it was only when a tribune of the people, that traditional opponent of the patrician party, interfered that he was compelled to alter his conduct. For a foreign priest, and that too a Phrygian, with that detested symbol on his head, to seek and gain audience before the Roman Senate, and even to harangue the Roman populace in the Forum, argues a confidence greater than that warranted by the support of a mere superstitious following among the common people. However, the cult was not yet strong enough to be absolutely independent. Battaces came from Pessinus, which was still the headquarters of the religion, on a mission to the Roman branch of the worship, and improved his opportunities by addressing the multitudes in the Forum. But although he was entertained at the public expense, and given, as it were, the freedom of the city, there was a limit beyond which the popular party would not suffer his presumption to carry him. The cult of the Great Mother at the end of the second century B. C., then, was still essentially a foreign cult, though strong and presumably under aristocratic patronage.
 
-*) In Plutarch, Battaces comes to Rome bearing the assurance of the Great Mother that the Romans are to be victorious against the Cimbri and Teuton i. He appears before the people and attempts to address them; but Aulus Pompeius prevents him, calling him an dyvpzrjS and rudely driving him from the rostra.
+*) In Plutarch, Battaces comes to Rome bearing the assurance of the Great Mother that the Romans are to be victorious against the Cimbri and Teutoni. He appears before the people and attempts to address them; but Aulus Pompeius prevents him, calling him an [GREEK] and rudely driving him from the rostra.
 
 As far as the scant evidence of the period of the Republic enables us to determine, the rites and practices of the cult were comparatively faithful imitations of the original Phrygian worship. It was in charge of a Phrygian priest and priestess, who were clad in robes of bright colors, wore images on their breasts, and as they moved in procession, played the flute and beat the tympanum in honor of the Mother.* In Rome, as in Phrygia and Greece, her priests collected money for the support of the cult by begging from house to house during their processions, and Cicero says that this privilege was withheld from all save the priests of the Great Mother because it filled the minds of the people with superstition and exhausted them financially.* In Varro appear the familiar emasculated _Galli_, tossing their flying locks in a frenzy to the sound of the tympanum, the din of the cymbals is heard, and possibly the fragments containing mention of the _muliebris stola_ and the "purple linen garment shining like the dawn, and the diadem of gold glittering with gems" relate to priests of the Mother.* Lucretius presents the picture of the goddess with her lions, and the _Galli_ with their tympana, cymbals, and flutes. She is carried through the streets in triumph, herself and her attendants garlanded with roses, while gifts of silver and bronze are showered upon her.* The horn, with its hoarse, threatening notes, and the javelins, carried as _violenti signa furoris_, are not directly attested as Phrygian, and may be Roman additions. The kettledrum mentioned by Mommsen 3 115 is a mistake. Suidas, under the word [GREEK], describes an instrument used by the Indians instead of the _salpinx_, and this was a kettledrum; but nothing of that description is anywhere attested for the worship of the Great Mother at Rome. According to fragments of Varro (Buecheler's _Men. Sat_, 149, 150) there seems to have been a temple service more or less complete. The ordinary offering to the divinity was _moretum_, a compound of various herbs with cheese, a parallel to which is found in the Greek offering [GREEK], a barley porridge in milk.* The _Lavatio_, a bathing of the goddess, was a feature of the annual celebration which was of Phrygian origin.*
 
-*) Dionys. II 19. The strains of the flute are called [GREEK].
+*) Dionys. 2 19. The strains of the flute are called [GREEK].
 
-*) De Leg. II 16, 40. Ovid attributes the origin of the custom to the collections made for the rebuilding of the temple by Metellus after the fire of 111 B. C, but it was of Phrygian origin.
+*) _De Leg._ 2 16, 40. Ovid attributes the origin of the custom to the collections made for the rebuilding of the temple by Metellus after the fire of 111 B. C., but it was of Phrygian origin.
 
 Not all the features of the Phrygian cult, however, were retained on its introduction at Rome. In the case of such cults as were introduced in consequence of the recommendation of the Sibylline Books, it was the practice of the Roman State to assume official control, rejecting such features as seemed unessential or undesirable, and instituting an annual series of games. Thus while the priesthood of the Mother continued to be Phrygian and the ordinary rites and the manner of support of the cult were essentially the same as those of the parent cult, the annual public festivities were under the control of the praetors, and were instituted and performed [GREEK].* Under the Republic these annual festivities consisted of sacrifices, the _Lavatio_, and the _Megalensia_. The full Phrygian cycle, as will be shown, was introduced under the Empire.
 
-*) Men. Sat, ed. Buecheier, 132, 149, 120, 121.
+*) _Men. Sat._, ed. Buecheler, 132, 149, 120, 121.
 
-*) II 600 sqq.
+*) 2 600 sqq.
 
-*) Ovid Fast. IV 337 sqq.; C. I. A. II 170, 13, cf. Hesyck. s. v. [GREEK].
+*) Ovid _Fast._ 4 367 sqq.; _C. I. A._ 2 470, 13, cf. Hesych. s. v. [GREEK].
 
-*) Ovid Fast. IV 337 sqq.
+*) Ovid _Fast._ 4 337 sqq.
 
 It has been thought strange that the name Attis does not appear in Roman literature up to the time of Catullus, and does not occur in inscriptions or on coins of the Republic. If the Attis legend had become familiar, certainly if Attis had risen to any prominence in the cult, this silence would be strange. Varro's _Antiquitates Rerum Divinarum_, a work which might be expected to contain some account of Attis, evidently said nothing of him, for Augustine says Varro avoided a discussion of the subject, though he attributes the fact to Varro's consciousness of the futility of attempting to give a reasonable interpretation of the legend.* Livy, giving a full account of the introduction of the Mother, and Lucretius, giving an extended interpretation of the rites, do not so much as hint at the existence of Attis, and even Ovid, in his mention of the youth, does not speak of him as though he knew him otherwise than in legend. The poem of Catullus is either from a Greek original or inspired by the author's sojourn in Asia Minor among the scenes described, and the Attis sung in its verses is not the Attis of the legend, but merely a type of the priesthood; for the name Attis was a traditional title of priests.* Lachmann's conjecture of _Attidis_ in _frag._ 150 of the _Men. Sat._, which would indicate the worship of Attis at Rome in the time of the Republic, is a no more probable correction of the manuscript than Riese's conjecture on the same passage.* A coin of uncertain date, struck by one _Cetegus_, perhaps Publius Cornelius Cethegus, who flourished in the early part of the first century B. C., is sometimes brought forward as evidence of the presence of Attis under the Republic. It has on its obverse the head of Dea Roma, and on its reverse a figure astride a he-goat, holding a branch on his right shoulder. On the basis of a legend in Pausanias 7 17, which relates that Attis, having been exposed by his parents, was cared for by a he-goat, Cavedoni,* followed by Mommsen 56 and Babelon, 57 identifies the figure as Attis, assigning as a motive for the representation on the coin the commemoration of the introduction of the cult of the Great Mother and Attis in 204 during the consulship of M. Cornelius Cethegus, ancestor of the _Cetegus_ of the coin. But the exact date of the coin is unknown, the identity of its striker is not certain, and there is no proof that the legend told by Pausanias was current at Rome as early as the second century B. C. Nor is the figure on the goat beyond doubt Phrygian, for the headdress, the only means of identification, is described by Cavedoni as a _galea_ which at its upper extremity resembles the Phrygian _pilleus_, and by Mommsen as a Phrygian cap, or a helmet which resembles one. Add to this that the representation ofa nude figure astride a galloping he-goat has little in it to call to mind the legend of the infant Attis. As an allusion to the introduction of the cult of the Great Mother, the ambiguous portrayal of one detail in a legend of her favorite would be far from felicitous. Less than the head of the deity herself, which actually does occur on the first coin which bears a clear allusion to her, or at least a representation of Attis with unmistakable attributes, could hardly be expected. The most that can be admitted is that if the figure does represent a Phrygian, it is meant merely to suggest Phrygia, the original home of the Great Mother, and is a general, not a specific allusion.
 
-*) Dionys. II 19.
+*) Dionys. 2 19.
 
-*) De Civ. Dei VII 25: Et Attis ille non est commemoratus nee eius ah isto interpretatio requisita est Merito hine aver satus est Varro noster, neque hoe dicere voluit.
+*) _De Civ. Dei_ 7 25: _Et Attis ille non est commemoratus nec cius ab isto interpretatio requisita est... Merito hinc aversatus est Varro noster, neque hoc dicere voluit._
 
-*) Polyb. XXI 37; C. I. L. VI 2183.
+*) Polyb. 21 37; _C. I. L._ 6 2183.
 
 *)Qui dum esse na hora nam adlatam imponeret aedilia signo siae (sie W) et deam gallantes vario retinebant studio HL W. Qui dum messem hornam adlatam imponeret aedilis signo Cybelae, deam gallantes vario recinebant strepitu. Riese. Qui dum messem hornam adlatam imponunt Attidis signo synodiam gallantes vario recinebant studio. Lachmann. Qui cum e scaena coronam adlatam imponeret aedilis signo, synodiam gallantes vario recinebant studio. Buecheler.
 
