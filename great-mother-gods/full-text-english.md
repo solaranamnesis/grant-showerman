@@ -665,39 +665,39 @@ The next day, March 27th, the last of the celebration, was the occasion of the c
 
 Another rite of great importance, not, however, always a part of the annual festival, was the _taurobolium_, the sacrifice of a bull, or its variation the _criobolium_, the sacrifice of a ram.* The rise of the ceremony dates from the early part of the second century A. D., as the first evidence of its existence is an inscription of the reign of Hadrian, in the year 133, found at Naples.* There is no mention of the sacrifice of bulls in the service of the Mother, nor is the elaborate ceremony of the _taurobolium_ attested as being performed in Phrygia or Greece before this date. The fact, then, that the first known occurrence of the rite was in Italy and that it is next heard of in Gaul, and is not attested for Greece and other provinces until still later, signifies that Rome, even if it did not originate this elaborate form of sacrifice, was at least the place where it rose into prominence, and the center from which it was disseminated. It spread rapidly throughout Italy and to all parts of the Empire, and was one of the most important rites of the cult up to the fall of Paganism. A description of the _taurobolium_ as it was performed in the 4th century A. D. is put by Prudentius into the mouth of Romanus the Martyr.* The high priest, his temples richly adorned with fillets, a golden crown on his head, his toga girt _cinctu Gabino_, descends into a deep trench completely covered with a platform of planks pierced by a large number of holes. On this platform is led a huge bull, garlanded with flowers, his front gleaming with gold. His breast is pierced by the consecrated spear, and the torrent of hot, steaming blood floods the covering of the trench and rains through the thousand chinks and perforations on the expectant priest below, who throws back his head the better to present his cheeks, his ears, lips, nostrils --- nay, even his tongue and palate --- to the purifying bath. When life has fled and left cold the body of the slain bullock and the flamens have removed it, the priest emerges, and with beard, hair, and vestments dripping with blood, presents himself to the expectant throng of worshipers, who salute and do obeisance to him as to one who has been purified.
 
-*) Luc. II 600 sqq.; Ovid Fast. IV 339 sqq.; Livy XXIX 11.
+*) Luc. 2 600 sqq.; Ovid _Fast._ 4 339 sqq.; Livy 29 14.
 
 *) 1 10, 5.
 
-*) Stat. Silv. V 1, 223; Val. Flac. Arg. VIII 239.
+*) Stat. _Silv._ 5 1, 223; Val. Flac. _Arg._ 8 239.
 
-*) Adv. Nat. V 12; IV 35; VII 33.
+*) _Adv. Nat._ 5 42; 4 35; 7 33.
 
-*) The aemoboliutn, or blood-sacrifice, once mentioned, C. I. L. IX 3015, is probably the taurobolium under another name.
+*) The _aemobolium_, or blood-sacrifice, once mentioned, _C. I. L._ 9 3015, is probably the _taurobolium_ under another name.
 
-*) C. I. L. X 1596.
+*) _C. I. L._ 10 1596.
 
 The rite of the _taurobolium_ was not performed at fixed dates or at regular intervals. The rank of those who instituted the sacrifice varied, as did also the motive of its institution. Persons of senatorial rank were among those who gave it at Rome.* A _duumvir_ at Beneventum gave it on his entrance into office --- _in primordio suo_; private individuals sometimes gave it; it was performed in the second century at Carolina, in the _ager Falernus_, by Munatia, who had been appointed priestess by the _quindecimviri_; a priestess at Formiae gave it; Lucius Dagidius Marius, _pontifex perpetuus_ of Valentia, with his daughters Verullia Martina and Verullia Maria, instituted one; the college of _dendrophori_ gave it in the same city, and at Lugdunum; Pompeius Rusonianus, _consul_ and _quindecimvir_, gave it at Gabii; and the city of Narbo performed it _publice_, the expense being met _ex stipe conlata_.* In performances of the sacrifice by individuals, the expense was borne by the mover, and the fact is often recorded --- _de suo, suo sumptu, sua pecunia_.* The motive of the sacrifice was _pro salute imperatoris, pro salute imperii, pro salute et reditu et victoria imperatoris, ex voto, ex vaticinatione Archigalli, iussu ipsius Matris_.* An altar was erected especially for the occasion, and dedicated in commemoration of the ceremony.* The time occupied by the whole ceremony varied from one to five days,* which indicates either that the separate features of the rite, such as the erection and dedication of the altar, the actual sacrificial ceremony, and the ceremony _vires excipere, condere_, interpreted as the burial of the virile parts of the bull,* took place on different days, or that the whole was performed in connection with a special order of events unknown to us.
 
-*) Perist.X 1006 sqq.
+*) _Perist._ 10 1006 sqq.
 
-*) C. I. L. VI 501-505.
+*) _C. I. L._ 6 501-505.
 
-*) _Ibid._ IX 1540; XII 357; X 4726; X 6075; XII 1567; XII 1744 and XIII 1752; XIV 2790; XII 4321.
+*) _Ibid._ 9 1540; 12 357; 10 4726; 10 6075; 12 1567; 12 1744 and 13 1752; 14 2790; 12 4321.
 
-*) _Ibid._ IX 3014; XII 1, 1744.
+*) _Ibid._ 9 3014; 12 1, 1744.
 
-*) _Ibid._ XII 1569; II Supp. 5521; XII 1782; XII 4321 and II Supp. 5521.
+*) _Ibid._ 12 1569; 2 Supp. 5521; 12 1782; 12 4321 and 2 Supp. 5521.
 
-*) _Ibid._ VI 501-505; XIV 39.
+*) _Ibid._ 6 501-505; 14 39.
 
-*) _Ibid._ XIII 1752-1754; XII 1782; Orelli 2331.
+*) _Ibid._ 13 1752-1754; 12 1782; Orelli 2331.
 
-*) C. I L. XII 1567: XIII 1751.
+*) _C. I. L._ 12 1567: 13 1751.
 
-*) C. I. L. VI 497-504.
+*) _C. I. L._ 6 497-504.
 
-*) Visconti Annalee 1868 p. 400.
+*) Visconti _Annales_ 1868 p. 400.
 
 The _taurobolium_ at Rome was usually performed across the Tiber near a shrine which had been erected where the present church of St. Peter stands.* At Ostia it was probably performed at the Metroon in the area known as the campus _Matris Deum_.* The nature of the ceremony, which required ample space, explains why it did not take place at Rome before the temple on the Palatine, where the area was not large.
 
@@ -705,59 +705,65 @@ When the rite consisted of the _taurobolium_ alone, the altar was usually inscri
 
 The effect of this baptism of blood was purification and renewal of the sanctified life. The senator Volusianus at Rome, 390 A. D., performed the rite for the second time after an interval of twenty years,* and a poem in _Codex Parisinus_ also gives twenty years as the period of purification.* Sextilius Agesilaus Aedesius, a senator, however, on an altar dedicated by him in 376, is _in aeternum renatus_, as is also a devotee of Mithras who performs the rite to that deity in 391.* The similarity of the phrase and its idea to Christian language and doctrine is startling, and Burckhardt attributes the rise of the rite to a desire of Paganism to provide its devotees with the same eternal life which was promised as a reward to the Christian believer.* But however tempting this explanation may be and however conscious of the Christian idea of purification by the shedding of blood the authors of the _taurobolia_ in the fourth century may have been,* the rite is better explained as belonging purely to the Pagan worship. As it was regularly in honor of both the Mother and Attis, its significance must have had to do with that part of the myth which concerned both, _viz._: the death, decay, and resurrection of Attis. The priest descends into the dark pit and leaves the light of earth --- Attis dies --- the vegetation of the earth withers; the priest is bathed in blood and rises from the pit purified --- Attis is restored --- the vegetation returns. The other important feature of the ceremony, _vires excipere, condere_, if rightly interpreted to mean the bearing away and burying of the virile parts of the sacrificial animal, was a commemoration of the deed by which Attis died and by which his followers were consecrated.*
 
-*) C. I. L. XII 4321, 4322, 4325; VI 497-504. Aemobolium, IX 3015.
+*) _C. I. L._ 12 4321, 4322, 4325; 6 497-504. _Aemobolium_, 9 3015.
 
-*) _Ibid._ XII 1569, 1744.
+*) _Ibid._ 12 1569, 1744.
 
-*) _Ibid._ VI 512, cf. 504.
+*) _Ibid._ 6 512, cf. 504.
 
-*) Codex Parisinus 57-62 in Rie38 Anth. Lat. I 1. Quis tibi taurobolus vestem mutate suasit Inflatus dives subito mendicus ut esses? Obsitus et pannis, modica stipe factus epaeta, Sub terrain missus, pollutus sanguine tauri, Sordidus, infectus, vestes servare cruentas? Vivere num speras viginti mundus in annos?
+*) _Codex Parisinus_ 57-62 in Riese _Anth. Lat._ 1 1.  
+_Quis tibi taurobolus vestem mutare suasit_  
+_Inflatus dives subito mendicus ut esses?_  
+_Obsitus et pannis, modica stipe factus epaeta,_  
+_Sub terram missus, pollutus sanguine tauri,_  
+_Sordidus, infectus, vestes servare cruentas?_  
+_Vivere num speras viginti mundus in annos?_
 
-*) C. I. L. VI 510, 736. The taurobolium was not exclusively a rite of the Great Mother.
+*) _C. I. L._ 6 510, 736. The _taurobolium_ was not exclusively a rite of the Great Mother.
 
 Interpretation of the rites of the worship of the Great Mother begins in Roman literature with Lucretius, who, however, gives the views of the _veteres Graium poetae_. Her constant companions, the lions, are the symbols of the great Earth-mother's power over wild nature; her mural crown signifies her support of the cities of the earth; she is called the Idaean Mother and has Phrygian attendants because it was in the part of the world represented by these names that the fruits of the earth first sprang into being; her priests are castrated to signify that no one who has violated the laws imposed upon him by his mother or proven undutiful to his parents is worthy to bring life into the world; the tympanum, the cymbals, the horn, and the pipe serve by their din to arouse the minds of the ministers to a frenzy, and the weapons they bear before them symbolize the power of the divine wrath against the wicked and ingrate; the clashing of noisy instruments in the hands of the Mother's attendants is commemorative of the din made by the Curetes at the birth of Zeus, when they so deafened the ears of Kronos with the beating of spears and shields that he could not hear the crying of the infant.* Ovid adds that the origin of the _stips_ was in the collection of money for a new temple by Metellus after the fire of 111 B. C., that the _mutitationes_ were held _quod bene mutarit sedem Berecyntia_; that the _Galli_ were so called from the river Gallus, whose waters inspired frenzy in those who drank of them; and that the _moretum_ symbolized the primitive foods which the Mother afforded mankind.*
 
-*) Das Zeitalter Constantins 2 223 note 1.
+*) _Das Zeitalter Constantins_ 2 223 note 1.
 
-*) Firm. Mat. JDe Error. 27, 8 makes a comparison of the taurobolium with the shedding of the blood of Christ.
+*) Firm. Mat. _De Error._ 27, 8 makes a comparison of the _taurobolium_ with the shedding of the blood of Christ.
 
-*) Schol. to Nicand. Alex. 8: [GREEK].
+*) Schol. to Nicand. _Alex._ 8: [GREEK].
 
 These attempts to account for existing customs and rites however, date from a time when the spirit of interpretation had not yet become keen; and besides, interest in Attis had not yet reached its culmination. The first interpretation of the Cybele-Attis legend worthy of the name dates from the third century A. D., after philosophy had come to the aid of the Pagan religions. Porphyrius, the Neo-Platonist, believed that Attis signified the flowers of the springtime, because the earth in that season is more beautiful than at any other time, and that he was represented as _abscisum_ because the flower falls before the fruit. Attis and Adonis are to be understood after the analogy of the fruits. There is the difference, however, that Attis represents those flowers which come out in the springtime and die away before coming to fruition --- whence men have attributed to him the cutting away of his virile parts, the fruits not having arrived at the perfection of seeding; while Adonis, on the contrary, is the symbol of the cutting off of ripe fruitage.*
 
-*) II 600 sqq.; cf. Hyg. CXXXIX.
+*) 2 600 sqq.; cf. Hyg. 139.
 
-*) Fast. IV 197 sqq.
+*) _Fast._ 4 197 sqq.
 
-*) Aug. DeCiv. Dei VII, 25; Euseb. Praep. Ev, III 11, 12.
+*) Aug. _De Civ. Dei_ 7, 25; Euseb. _Praep. Ev._ 3 11, 12.
 
 The philosopher Sallust calls the Mother the life-imparting goddess, and Attis the [GREEK] of things coming into existence and things wasting away.* Maternus interprets the love of the Mother for Attis as the love of the earth for her fruits; his emasculation as the cutting of fruits; his death as their preservation; and his resurrection as the sowing of the seed again.* In the hymn in Hippolytus he is called an ear of grain cut off while yet green --- [GREEK].*
 
 Modern interpretation does not differ from the ancient. Taking as a basis the Pessinuntean legend in Arnobius, Rapp, in Roscher's Lexicon s. v. Attis, gives in substance the following interpretation : The bringing forth of Attis by Agdistis, who does not bear him herself, but is parent only of the almond-seed which the daughter of theSangarius eats, symbolizes the springing of the plant kingdom from the bosom of the earth. Attis, having grown to youthful beauty, and being beloved of the Great Mother, becomes her lover as well as her son. Having broken faith with her, he emasculates himself as punishment, and dies --- i. e., the beautiful plant growth, thriving luxuriantly up to midsummer, dies to the ground under the glowing rays of the sun. The Mother mourns her creation and buries him --- the earth, despoiled of her blooming vegetation, is in sorrow during autumn and winter. But Attis rises again by means of the efforts of the Mother and is again united to her --- the earth conserves seed and root, and vegetation returns in the spring. The time of the annual festival, which occupied a period including the equinox, is thus seen to be especially appropriate. The _Dies sanguinis_ was the last day of winter, and the _Hilaria_ occurred on the day when the hours of daylight began to lengthen and the sun to ascend again.
 
-*) De Diis et Mundo 4.
+*) _De Diis et Mundo_ 4.
 
-*) De Error. 3.
+*) _De Error._ 3.
 
-*) Ref. V 9.
+*) _Ref._ 5 9.
 
 The actual presence of Attis in the period of the Empire and the esteem in which he is held are among the most important manifestations in the growth of the cult at Rome. Known only as a character in the legend under the Republic, he is found in the new March festival in the imperial period receiving a full share in the ceremonies of commemoration. When the _taurobolium_ and _criobolium_ come into prominence, it is to both Attis and the Mother that the sacrifices are made, and he is put on an equality with his protectress. He is advanced to the rank of divinity and is omnipotent and omniscient --- [GREEK].* The Emperor Julian calls him [GREEK] and [GREEK]. 74 However, he is secondary to the Mother in importance, and is never entirely independent of her at Rome, but always her associate and minister --- [GREEK].* His importance in the East was the same. Psellus refers him to the Phrygian Zeus,* and Arrian says the Bithynians called [GREEK].*
 
 In the fourth century Attis had come to be a symbol of the sun.* His emasculation symbolized the diminution of the heat of the sun, his resurrection the return of the heat in the spring, and the _Hilaria_, on the first day of the ascent of the sun, were especially appropriate as representing the joy of the earth at the recurrence of the warm season.* The fact that the sun began its ascent in the zodiacal sign Aries may have had to do with the sacrifice of the ram to Attis. He is represented in one instance upon a chariot drawn by four rams, which is interpreted by Visconti as the triumph of the sun at the spring equinox.*
 
-*) Kaibel Epig. 824.
+*) Kaibel Epig._ 824.
 
-*) Or. V 168 C; cf. Socrat. Hist. Eccles. Ill 23.
+*) _Or._ 5 168 C; cf. Socrat. _Hist. Eccles._ 3 23.
 
-*) Jul. Or. V 171 C.
+*) Jul. _Or._ 5 171 C.
 
 *) [GREEK] 109.
 
-*) Eustath. on 11. V 408.
+*) Eustath. on _Il._ 5 408.
 
-*) Macrob. Sat. I 21, 9; Jul. Or. V 163 D; Arnob. V 42.
+*) Macrob. _Sat._ 1 21, 9; Jul. _Or._ 5 168 D; Arnob. 5 42.
 
-*) Visconti Annates 1869 pp. 226, 7.
+*) Visconti _Annales_ 1869 pp. 226, 7.
 
 *) _Ibid._ 239.
 
@@ -765,9 +771,9 @@ The most important representation of Attis, however, is the life-size statue dis
 
 The interpretation of Attis as a symbol of the sun, or as having a cosmic significance, was a product of syncretism. The task of transforming the Phrygian companion of the Mother into such a symbol, however, was from the nature of the case of little difficulty. First, the Mother herself had long been regarded as the earth; second, the time of the' principal ceremonies of the cult, the March equinox, naturally lent an astronomical significance to the deities honored ; and third, the legend of a Great Mother with a son and daughter Helios and Selene had become current long before. Diodorus 3 57 records the tale. Basileia, the daughter of Ge, was called the Great Mother because of her motherly care for her brothers after the death of Ge. Such was her sagacity that after the death of her father she was entrusted with the government of the land. Influenced by the desire to leave heirs to the throne, she finally wedded Hyperion, and bore Helios and Selene, both marvels of beauty and wisdom. Her brothers, however, fearing that Hyperion would possess the realm, slew him and drowned Helios in the Eridanus. Selene, grief-stricken at her loss, destroyed herself, while Basileia, searching by the river for the body of Helios, swooned and had a vision in which her son bade her not to mourn, for her children were to become beings of immortal nature, and the sun, hitherto called the sacred fire, was now to be called Helios, and the moon Selene, instead of Mene. Regaining consciousness, Basileia recounted her dream, gave command to worship as divine her dead children, and forbade anyone ever to touch her person; whereupon, losing her reason, she seized the tympanum and cymbals which had served as playthings to Selene, and, filled with the divine frenzy which their sounds inspired, with dishevelled hair wildly traversed the fields in a manner which struck fear into beholders. Certain ones in pity attempting to lay hands on her were frightened away by torrents of rain and by falling thunderbolts, in the midst of which demonstration Basileia disappeared. The awe-inspired people established a cult of the stars, invoking them under the name of Helios and Selene, placed their mother among divinities, and erected altars to her, performing all her rites to the sound of tympana and cymbals.
 
-*) C. I. L. VI 499 sqq., 508, 511.
+*) _C. I. L._ 6 499 sqq., 508, 511.
 
-*) _Ibid._ IX 3146; Hippol. Bef. V 9; Jul. Or. V 135 B; Babr. Fab. CXXVI; RoschQr's Lex. s. v. Attis 720.
+*) _Ibid._ 9 3146; Hippol. _Ref._ 5 9; Jul. _Or._ 5 165 B; Babr. _Fab._ 126; Roscher's Lex. s. v. Attis 720.
 
 The Basileia of this legend was naturally identified by the Romans with the Great Mother, and Helios was consequently thought of as being the same as Attis. The fact that Helios was the sun tended to give Attis also a solar character when the two were identified, and this, together with the festival of the equinox and the Mother's character as the earth, made it easy for syncretism to give the Attis-myth the new significance which it acquired in the late period.
 
@@ -777,7 +783,7 @@ The Great Mother's growth in favor in the outlying parts of the Roman world was 
 
 *) Strabo 567.
 
-*) Momm. Ill 276 note.
+*) Momm. 3 276 note.
 
 *) Strabo 567.
 
@@ -785,23 +791,23 @@ The Great Mother's growth in favor in the outlying parts of the Roman world was 
 
 All parts of Asia Minor knew the religion of the Mother, and the cult spread to the very eastern confines of the peninsula and found its way even into Syria, the stronghold of the Dea Syria described by Lucian as so much resembling the Mother. Phrygia especially was a center of the cult. Strabo calls her [GREEK] and says that all Phrygia worshiped her.* The scholiast notes :[GREEK].* Other districts in which she attained special prominence were Mt. Sipylus, where she was known as [GREEK], and [GREEK], the last name from a city nearby*; Pergamum, where she was known as [GREEK] and [GREEK] from the city and a neighboring mountain, and where she was represented on the frieze of the great altar*; the Troad and neighborhood of Mt. Ida especially, where she was [GREEK], from mountains*; Mt. Tmolus, where she was called [GREEK]*; 94 Cyzicus, where she was [GREEK], from the city of Plakia,[GREEK], from a neighboring mountain, [GREEK], from a Mt. Dindymon, and [GREEK].* The esteem in which Attis was held in the East has been noticed on p. 287. As late as 350 A. D. he was especially honored among the Phrygians.*
 
-*) Mionnet VII 644, 64 etc.
+*) Mionnet 7 644, 64 _etc._
 
-*) Ep. XLIX 431.
+*) _Ep._ 49 431.
 
 *) Strabo 469.
 
-*) Schol. to Apollon. Arg. 1 1126.
+*) Schol. to Apollon. _Arg._ 1 1126.
 
-*) Strabo 469; Bull, de Corr. Hell. Ill 328; Paus. V 13, 7.
+*) Strabo 469; _Bull. de Corr. Hell._ 3 328; Paus. 5 13, 7.
 
-*) C. I. G. 6835; Strabo 619; Overbeck Gesch. d. Griech. Plast. II 406.
+*) _C. I. G._ 6835; Strabo 619; Overbeck _Gesch. d. Griech. Plast._ 2 406.
 
-*) Strabo 45, 614, 539.
+*) Strabo 45, 614, 589.
 
 *) _Ibid._ 440.
 
-*) C. I. G. 3657; Nic. Alex. 8; Apollon. Arg. I 1125; Bull, de Corr. Hell. XVII 531 sq. no. ,33.
+*) _C. I. G._ 3657; Nic. _Alex._ 8; Apollon. _Arg._ 1 1125; _Bull. de Corr. Hell._ 17 531 sq. no. 33.
 
 *) Harpocration s. v. Attis. [GREEK].
 
@@ -811,17 +817,17 @@ The age of the Antonines, which marked the period in which coins bearing represe
 
 Owing to the close resemblance and consequent confusion of Cybele, Rhea, and the Greek Great Mother, it is impossible to speak with definiteness of the career of the Phrygian divinity in Greece. Of her introduction and the repute in which she was held mention has been made. The purely Asiatic features of the worship were not agreeable to the Greeks, and Attis especially met with little favor. He was honored at Peiraeus at the beginning of the second century B. C. with [GREEK], which seem to have been festivals like those of Adonis, and it is probable that Cybele-Attis and Aphrodite-Adonis were identified in this case. The priestess of the cult, which was a private one dating from the end of the fourth century, is mentioned with honor because [GREEK].* The great similarity of Attis and Adonis, whose only striking difference lay in the detail of emasculation, was one cause of the failure of the worship of the former to become more popular in Greece. Peiraeus, being a seaport town, was naturally more easily entered by foreign cults than the inland cities. Elsewhere in Greece Attis enjoyed a sanctuary in common with the Mother in only two cities, Dyme and Patrai,* and was never recognized as other than a foreign divinity. Lucian calls him, together with Pan, Korybas, and Sabazios, [GREEK].* Besides the shrines of the Mother at Peiraeus, Dyme, and Patrai, there were in Pausanias' time sanctuaries at Thebes and Acriae, a city of Laconia.* These are given as belonging to the Asiatic Mother. The difference, however, between the worship of the Greek and the Asiatic Mother and Rhea was at most very slight under the Empire, except in the few places where Attis also was worshiped. The _taurobolium_ was extremely rare, and only two instances of its performance, commemorated on altars both found at Athens, are known. Both occurred at a very late period in the fourth century A. D.* Coins of Megara, Corinth, Patrai, _etc._, are indications of the influence coming from Rome in the second century A. D. The cult in Greece, however, never reached the height of popularity which it enjoyed at Rome, a fact which is evidenced not only by the unpopularity of Attis and the rarity of the _taurobolium_, but by literary testimony. The worshipers were for the most part women, and even the few men who cultivated the religion were the weak and effeminate.* Pythagorean Phintys tells honest women to keep away from the rites of the Mother,* and Plutarch advises husbands to close their doors against stranger superstitions, and attributes the strength of the cult to charlatan beggars and vagabonds who manufacture oracles for slaves and women.*
 
-*) Mionnet, Imhoof, et. al., passim.
+*) Mionnet, Imhoof, _et. al._, _passim._
 
-*) Comparetti, A nnates 1862, 23 sqq.
+*) Comparetti, _Annales_ 1862, 23 sqq.
 
-*) Paus. VII 17, 9; 20, 3.
+*) Paus. 7 17, 9; 20, 3.
 
-*) Jcaromen. 27.
+*) _Icaromen._ 27.
 
-*) IX 25, 3; III 22, 4.
+*) 9 25, 3; 3 22, 4.
 
-*) C.I. J. Ill 172, 173, cf. Bull. deW 1st. 1867, 174.
+*) _C. I. A._ 3 172, 173, cf. _Bull. dell' 1st._ 1867, 174.
 
 Numerous coins with representations of the Mother, dating from the period of the Antonines and later, testify to the prosperity of the cult in Thrace. She was worshiped in several places in Macedonia, a relief of her having been found at Amphipolis, where were also found, in a necropolis, hundreds of terra cotta figurines of Attis.* Moesia was a stronghold of the cult, and Epirus also afforded it a home.*
 
@@ -829,73 +835,73 @@ The cult followed the Roman arms into Africa. The Mother appears on Egyptian coi
 
 In Spain, inscriptions attest _taurobolia_ in Emerita and Corduba, and dedications in Olisipo and Capera.* In Mago in Minorca was a temple to the Mother and Attis. Aquitania and the Gauls, Noricum, Pannonia, Dacia, Dalmatia, the Rheinland, and even Britain have left traces of the divinity, and the Italian peninsula received her in every province. Lugdunum and Augustodunum, in Gallia Lugdunensis; Tournacum, in Gallia Belgiea; Narbo, Forum Julii, Vasio, Dea Augusta Vocontiorum, Valentia, arid Tegna, in Gallia Narbonensis; Celeia, in Noricum; Salonae, in Dalmatia; Ostia, Portus, Praeneste, Tibur, and other cities near Rome; Cumae, Puteoli, Teate, Corfinium, Venafrum, Saepinum, Beneventum, Venusia, Brundisium, Falerii, Faesulae, Interamnia, Augusta Taurinorum, Mediolanium, Brixia, Verona, Aquileia, Tergeste, Capodistria, in the Italian provinces --- were all centers of the cult.*
 
-*) Schol. to Aristoph. Birds 877, Lysist. 389; Iamb. De My sterns III 10.
+*) Schol. to Aristoph. _Birds_ 877, _Lysist._ 389; Iamb. _De Mysteriis_ 3 10.
 
-*) Stobaeus Floril. LXXIV 61.
+*) Stobaeus _Floril._ 74 61.
 
-*) Praecept. Coniug. 19; De Pyth. Orac. 25.
+*) _Praecept. Coniug._ 19; _De Pyth. Orac._ 25.
 
-*) Bull, de Corr. Hell. 1891 p. 423 no. 3, and 1895 p. 534.
+*) _Bull. de Corr. Hell._ 1894 p. 423 no. 3, and 1895 p. 534.
 
-*) Mi. et. al., passim.
+*) _Mi. et. al., passim._
 
-*) _Ibid._ VI 243, 1643; 310, 2135; Poole p. 184 no. 1465 pi. 7.
+*) _Ibid._ 6 243, 1643; 310, 2135; Poole p. 184 no. 1465 pl. 7.
 
-*) De Civ. Dei II 4.
+*) _De Civ. Dei_ 2 4.
 
-*) C. I. L. VIII 9101; Victor Waille De Caesareae Monumentis Quae Super sunt.
+*) _C. I. L._ 8 9401; Victor Waille _De Caesareae Monumentis Quae Supersunt_.
 
-*) C. I. L. II Supp. 5260, 5321; C. I. L. II 178, 179.
+*) _C. I. L._ 2 Supp. 5260, 5521; _C. I. L._ 2 178, 179.
 
 The designation of the Mother in Asia, as has been seen, varied according to the locality in which she was worshiped. The influence of this custom is seen in the West in the name _Palatina_, applied to the goddess because of her temple on the Palatine.* She is generally known under the Empire, however, by some name which calls to mind either the land whence she came, Phrygia, her connection with the legendary parent city of Rome, Ilium and Mt. Ida, or her essential nature as Mother of all being. She is thus _Mater Phrygia, Cybele, Cybebe, Cybeleia Mater, Pessinuntia, Dindymene, Berecyntia Mater, Mygdonia Mater_*; _Mater Idaea, Mater Iliaca*; Magna Mater, Mater Deum, Mater Deum Magna, Mater Deum Magna Idaea_.* Of these the last class is the most frequent, especially _Mater Deum Magna Idaea_, which unites both character and legendary significance and provenience.*
 
 That the characteristics or the cult of the Mother should remain invariable in all the diverse lands in which her religion flourished was impossible. Her very nature forbade that; for every nation had its Great Mother, or at least some divinity akin to her in character, and the approach of the Mother of necessity resulted in each case, if not in a complete blending of the two divinities, at least in a modification of the one or the other. In Syria, she is with difficulty to be distinguished from the Dea Syria. In Greece she early became all but completely blended with Rhea, and is not clearly distinguishable from the Greek Mother except when she is designated by an Asiatic name or mentioned in connection with Attis. At Peiraeus, as has been seen, she was identified with Aphrodite. At Carthage it was the Virgo Caelestis with whom she was associated.* If the Germans worshiped her on her introduction into their country by the Romans, they no doubt saw in her their own _Mater Deum_, mentioned by Tacitus.* In Rome itself, and in Italy, she was akin to Ceres,* to Tellus,* to Ops or Maia,* and was confused even with Minerva* and Juno.*
 
-*) Roscher's Lex. II 2 s. v. Meter; Michaelis Ancient Marbles in Great Britain Oxford 86, 131, 132, 159, etc.
+*) Roscher's Lex. 2 2 s. v. Meter; Michaelis _Ancient Marbles in Great Britain_ Oxford 86, 131, 132, 159, _etc._
 
-*) C. I. L. XII 405.
+*) _C. I. L._ 12 405.
 
-*) Verg. Aen. VII 39; Juv. II 111; Catull. LXIII 9; Ovid Ibis 453; ArEob. IV 35; Hor. C. 1 16, 5; Verg. Aen. VI 784; Val. Flac. II 48.
+*) Verg. _Aen._ 7 39; Juv. 2 111; Catull. 63 9; Ovid _Ibis_ 453; Arnob. 4 35; Hor. _C._ 1 16, 5; Verg. _Aen._ 6 784; Val. Flac. 2 46.
 
-*) Lucret. II 611; Prud. Contra Sym. I 628.
+*) Lucret. 2 611; Prud. _Contra Sym._ 1 628.
 
-*) C. I. L. VI 508; 494; III 1100-1102; VI 499.
+*) _C. I. L._ 6 506; 494; 3 1100-1102; 6 499.
 
-*) _Ibid._ VI 499-502.
+*) _Ibid._ 6 499-502.
 
 Except where her cult existed in proximity to those of the Dea Syria and Rhea and the Greek Mother, however, the Great Mother preserved her identity completely; and even in the case of those divinities it was more at their own expense than at that of the Mother that the identification took place. At Rome, and in the West generally, she never changed her character perceptibly under the influence of other divinities. She may have taken on at her introduction some small part of the staidness and heaviness of the old-Roman gods, but otherwise she remained the same to the end. When under the Empire the returning wave of influence from Rome reached Greece and Phrygia, the variations in the cult throughout the vast organization of the Roman possessions became still more slight. Rhea and the Greek Mother, long before this time ail but assimilated with the Phrygian Great Mother, now became completely identified with her, and writers called her Cybele and Rhea indifferently. The cult was uniform, and co-extensive with the Empire.
 
-*) Aug. De Civ. Dei II L.
+*) Aug. _De Civ. Dei_ 2 4.
 
-*) Germ. 40.
+*) _Germ._ 40.
 
-*) Aug. De Civ. Dei VII 16, cf. C. I. L. V 796.
+*) Aug. _De Civ. Dei_ 7 16, cf. _C. I. L._ 5 796.
 
-*) Aug. De Civ. Dei IV 10.
+*) Aug. _De Civ. Dei_ 4 10.
 
-*) Macrob. I. 12, 20; cf. p. 266.
+*) Macrob. 1. 12, 20; cf. p. 266.
 
-*) C. I. L. IX 1538-1542: Attini sacrum et Minervae BereGlnt. or P aracentiae.
+*) _C. I. L._ 9 1538-1542: _Attini sacrum et Minervae Berecint._ or _Paracentiae.
 
-*) Aug. De Civ. Dei VII 16.
+*) Aug. _De Civ. Dei_ 7 16.
 
 We have thus seen the religion of the Great Mother established in every part of the dominions of the Roman people. Transplanted from its already ancient home in the East to the new "West, it so thrived uuder the new conditions that in three centuries its western home was the center, not an outpost, of the cult, and not only disseminated the worship to the utmost confines of the Roman world --- to Britain, Spain, Africa, Syria, Scythia --- but revivified it in its ancient stronghold. And yet this religion was termed in its own day, and we still term it an oriental superstition, and marvel that it could have become so popular even among a people as little given to inquiring into the deep things of the gods as were the Romans of the imperial period. The Great Mother of the Gods was an essentially foreign divinity; her priests were fanatics, often of a despised nation, and, worse than that, sexless; her rites consisted of frenzied orgies ; her genius was entirely different from that of the old gods of Rome --- and yet her cult found ready admission, gained ground from the first, grew until it became one of the most popular and powerful in Rome, and was one of the very last to fall before Christianity. The horror which the most notorious of its practices inspired is exemplified in Catullus: nothing could be more repulsive to a Roman. The increase of the cult in popularity was attended by an increase in corrupt practices in connection with it. Clodius, the enemy of Cicero, could sell to Brogitarus, the son of King Deiotarus, the very shrine of Pessinus, and the celebration of the _Megalensia_ lost its original respectable character.* Lucretius and Varro are no friends of the priesthood of the cult. Gentle and reverent Vergil, seeking for fit words to express the contempt which sturdy Turnus feels for Trojan Aeneas, can find nothing more pregnant with scorn than _Phryx semivir_.* The _Galli_ are the butt of Martial's obscene wit,* and the lash of Juvenal's scorn descends upon the cult again and again.* It matters not that Juvenal was a satirist and Martial a professional wit, and that the testimony of wit and satire is not the most satisfactory; the outward features of the religion, at least, were such as to scandalize anyone but a fanatical adherent. That it lived throughout the centuries seems, at first thought, strange; that it grew to enormous proportions, spread to the ends of the earth, and could win the praise and even the tenderness of poetry,* is incomprehensible unless there was some reason for it that is not immediately apparent.
 
 We have noted the fortunate combination of circumstances which followed the introduction of the cult --- the good harvests, the end of the second Punic war, the general success of the Roman arms --- and the patronage of the patrician class. Emperors rebuilt and restored the Mother's temples and extended her worship*; Empresses had themselves represented in her image*; members of good families entered the priesthood, or performed sacrifices to the goddess in behalf of the imperial house; her last defenders were men of high rank in the State.*
 
-*) Be Harusp. Eesp. 13, 28; 12, 24.
+*) _De Harusp. Resp._ 13, 28; 12, 24.
 
-*) A en. XII 99.
+*) _Aen._ 12 99.
 
-*) II 45; III 81.
+*) 2 45; 3 81.
 
-*) II 111; III 60; VI 511; VIII 176.
+*) 2 111; 3 60; 6 511; 8 176.
 
-*) Claud. XV 116-130; XX 279-303; Verg. Aen. IX 80 sqq.
+*) Claud. 15 116-130; 20 279-303; Verg. _Aen._ 9 80 sqq.
 
-*) Res Gest. Biv. Aug. IV; C. I. L. IX 1406.
+*) _Res Gest. Div. Aug._ 4; _C. I. L._ 9 1406.
 
-*) Muller-Wieseler I 69, 379; Imhoof 211 no. 682 taf. 12, 16; Coh. II 417, 55.
+*) Müller-Wieseler 1 69, 379; Imhoof 211 no. 682 taf. 12, 16; Coh. 2 417, 55.
 
 *) Cf. p. 311.
 
@@ -909,17 +915,17 @@ She is a chaste goddess. Marsyas, in the legend of Diodorus, is chaste in his re
 
 Further, there was something more genial and satisfactory to the soul in the religion itself than in the formal, stately, and passionless religion of the ancient gods of Rome. The need which was beginning to be felt, and which was to be met in fullest measure by Christianity, was met in some small measure, at least, by the oriental religions, among the three most prominent of which was that of the Great Mother. Her devotees were brought nearer the divine and nearer each other than the worshipers of the classical divinities. Their divinities could prophesy, and foretell victory, but she could do more than that --- she could communicate with them spiritually; it was possible for a human soul to be enthused with the spirit of the divine. And men were brought nearer each other. There was the geniality of religious association in the fraternal organizations of the _dendrophori_ and _cannophori_. The populace and the priests were kept on familiar terms by the collection of the _stips_, and in the performance of their duty the latter were afforded abundant opportunity of making use of all the arts usually practiced by a scheming priesthood upon the ignorant multitude. As we have seen, Plutarch calls the priestly followers of the Mother in his land a race of vagabonds who fabricate oracles for slaves and women*; the goddess was [GREEK] at Peiraeus, she was skilled in healing in the legend of Diodorus, and magic cures were wrought by her ministers,* who could also furnish prophetic information to shepherds and farmers regarding their flocks and harvests* --- and what was true in Greece may be taken as an approximation of what was true at Rome. Further, there was the element of self-sacrifice and consecration, with its consequence so important for the faith of the worshiper, the consciousness of duty performed and deeds accredited, the feeling that divinity has been placed in his debt. The priest of the Great Mother consecrated himself to her service with an act of self-sacrifice as great as that of any modern monk or priest. He knew what it was to fast, he was merciless to his flesh on the _Dies sanguinis_, and was no stranger to the pain of selfscourging. He may have been the patient object of indignities while on his round of duty among the people. Nor were the latter without their share in the sacrifice, though it may have been smaller. The system of collections from house to house for the support of the cult gave every worshiper a personal interest in the richness of ceremony to which he himself was a contributor. Temperance was enjoined; no one polluted with wine was permitted to enter the sanctuary.* The worshipers at Pessinus were said to abstain from the flesh of swine.* Finally, and not of least importance, there was the connection of the religion with the idea of purification and new birth. Purification for twenty years or regeneration _in aeternum_ by baptism of blood in the rite of the _taurobolium_, though infrequently mentioned and of vague meaning, at least serve to indicate one cause of the rise of the Mother's religion.
 
-*) De Pyth. Orac. 25.
+*) _De Pyth. Orac._ 25.
 
 These, then, were the causes of the rise and spread of the religion of the Great Mother of the Gods. She was beautiful, chaste, and kindly, and her religion was one of those which made an advance on the old-time worships in meeting the needs of its devotees. "These religions (the oriental) had something deeper in them than those of Greece and Rome; they addressed themselves more fully to the religious sentiment," says M. Renan. This much is true, whatever the character of their ministry and however great the amount of corruption which gathered around them. Unfortunately for the justification of their worshipers, few words in their defense have survived, while the voices raised against them are many. The wit, the satirist, and the zealous Christian theologian are the witnesses in the case, and their evidence is limited to the reprehensible. Great in amount as that was, the fact of its presence does not disprove the existence of the praiseworthy. The spectacle of a noble principle degraded by unworthy adherents was not offered the world for the last time in the days of Paganism.
 
 *) Athen. 553 C.
 
-*) Philost. Vita Apoll. Ill 43.
+*) Philost. _Vita Apoll._ 3 43.
 
-*) Arnob. V 6.
+*) Arnob. 5 6.
 
-*) Paus. VII 17.
+*) Paus. 7 17.
 
 # 6\. The Cult from the Time of Claudius to its Fall.
 
@@ -927,45 +933,45 @@ Neither the administration of Nero, whose short-lived favor was extended now to 
 
 It is not until the time of Trajan that definite evidence appears of the spread of the cult to the northern and western provinces. The golden age of prosperity for the Empire was also the age of greatest prosperity for the religion of the Great Mother. An inscription from Lusitania testifying to the existence of the cult in that place dates from 108 A. D., which may have been some time after the entrance of the worship.* Coins of Trajan bearing representations of the Mother, struck in Lydia and Egypt, are extant.* It is from the reign of Hadrian that the first known _taurobolium_ inscription dates. The first known occurrence of the same rite outside of Italy dates from 160 A. D., and is another evidence of the extension of the cult toward the North. In this age, too, beginning especially with Hadrian, the striking of coins and medallions bearing the figure of the goddess became very common. The practice was continued with frequency for a century. The numerous examples especially of Antoninus Pius, Marcus Aurelius, the two Faustinas, Commodus, and Julia Domna throughout both West and East, and those of Caracalla, Macrinus, the Gordians, the Philips, Valerius, and Gallienus in the East are evidence of the extent of imperial favor.* Whether the striking of these coins had a special significance cannot be determined in the majority of instances; but those of Commodus are naturally to be connected with an incident related by Herodian.* Maternus, who with his small army of depredators had been setting at defiance the authority of the Emperor in Gaul and Spain, determined to forestall his sovereign's revenge by taking active measures against him. Having secretly made the journey to Rome, he and his followers were to assume various disguises and mix with the crowd on the day of the _Lavatio_ and assassinate Commodus. But the latter was informed of the plot, and Maternus and his accomplices were arrested and punished. The Emperor having disposed of his enemies, sacrificed and rendered thanks to the Mother, escorting her on her way in the procession of the day with rejoicing. Coins were struck bearing the legend _Matri Deum Conserv. Aug. Cos. 6_ and the figure of the mother on a lion.* The eastern origin of Julia Domna is sufficient explanation of the great number of representations of the deity on coins dating from her time and from that of her sons Caracalla and Geta. The establishment of a new branch of the cult, the restoration of a temple, or some incident similar to that related of Commodus may have been the occasion of the striking of these coins, but in general they seem to indicate only the favor in which the cult was held.
 
-*) Dio Cass. LXI 20.
+*) Dio Cass. 61 20.
 
-*) Suet. Otho 8.
+*) Suet. _Otho_ 8.
 
-*) Amm. Marc. XVIII 4, 5.
+*) _Amm. Marc._ 18 4, 5.
 
-*) C. I L. II 179.
+*) _C. I. L._ 2 179.
 
-*) S. Reinach Chroniques cZ' Orient 65; Stuart Poole Cat. Gr. Coins of Alex. p. 51 no. 427 pi. 7.
+*) S. Reinach _Chroniques d'Orient_ 65; Stuart Poole _Cat. Gr. Coins of Alex._ p. 51 no. 427 pl. 7.
 
-*) Cohen and Mionnet passim.
+*) Cohen and Mionnet _passim_.
 
 *) 1 10-11.
 
-*) Coh. Ill 274, 354; cf . 355.
+*) Coh. 3 274, 354; cf. 355.
 
 But at the same time in which the Great Mother and other oriental divinities were taking possession of the Roman Empire even to its farthest confines, another eastern cult, though less favored and even denied equal privileges, was rapidly gaining strength. By the latter half of the second century Christianity could appear in Roman literature debating the merits of the old and new faiths with dignity and assurance. The charming dialogue of Minucius Felix, who flourished in the time of Marcus Aurelius and Commodus, presents in calm and unembittered language the views of two cultured Roman gentlemen of the opposed religions. The Pagan sees in Christianity an unreasonable falling away from the ancestral religion and a needless overturning of long-established custom. The Christian's attention is fixed upon the absurdity of polytheism and the revolting nature of its legends and practices. The oriental deities, particularly Isis and the Great Mother, are the prominent objects of his animadversion. The points of attack upon the latter, as might be expected, were the legend of Attis and the practices of the priesthood.* The assaults of Tertullian are directed toward the same features. The exultant orator tells with great relish of an _Archigallus_ who devotedly chastised his own flesh _pro salute imperatoris Marci Aurelii_, not knowing that the Emperor had died seven days before. The day on which the priest poured out his blood by castrating _also his arms_ --- _lacertos quoque castrando_ --- was the _Dies sanguinis_ of the regular festival, _die nono Kalendarum earundem (Aprilium)_.*
 
-*) Octavius 22 and 24.
+*) _Octavius_ 22 and 24.
 
 But the first irreverent hand laid upon the Mother was not that of a Christian. The first remarkable act of Elagabalus after his succession and arrival at Rome was to build a temple on the Palatine near the imperial dwellings, to which he was desirous of transferring (and the historian leaves us to infer that in most cases he carried out his design) the _veneranda_ of all the religions of Rome. Among these was the sacred stone of the Great Mother, for whom, next to the Sun, his tutelar deity, Elagabalus evinced the greatest partiality. A favorite diversion of his was to impersonate the gods, and he assumed the character of the Mother, appearing with two lions. He was unsuccessful in his attempt to gain possession of the Palladium, for which the Vestals gave him a fictitious image, but was more fortunate in his designs on the _sacra_ of the Mother. To accomplish his end he was initiated into her service, performed a _taurobolium_, engaged in all the rites of the _Galli_, tossing his head in the frenzied dance and imitating not only their actions but also their appearance in every particular.*
 
 The efforts of the mad Emperor, however, did not disturb the fortunes of the goddess. The _Hilaria_ were one of the great festivals in the eyes of his successor, Alexander Severus, who on that and a limited number of other holidays allowed his frugal table to be graced with an extra fowl.* In 268 A. D., when the news of the death of Gallienus and the accession of Claudius to the throne came from Milan to Rome, the Senate could not be convened because of the celebration of the _Dies sanguinis_ which was in progress --- _sacrorum celebrandorum causa_ --- and an informal meeting to ratify the election of the new Emperor was held in the temple of Apollo.* Arnobius, writing _Adversus Nationes_ in Numidia about 295 A. D., gives evidence by the completeness with which he describes and interprets the rites of the annual festival and recites the legends of the cult that the worship still existed in all its details, and the polemical tone of his declamation indicates that the cult he attacked was still flourishing.* In 303 the _Hilaria_ were duly celebrated at Rome. It was on that occasion that Junius Tiberianus, prefect of the city, apparently after having taken official part in the exercises of the day, took Flavius Vopiscus into his carriage on the Palatine, and as they rode over to the _Horti Variani_ persuaded him to write the Life of Aurelian. The day had lost none of its spirit --- _Hilaribus, quibus omnia festa et fieri debere scimus et dici_.*
 
-*) Apol. 25.
+*) _Apol._ 25.
 
-*) Lamprid. Elagab. 3, 28, 6, 7.
+*) Lamprid. _Elagab._ 3, 28, 6, 7.
 
-*) _Ibid._ Severus 37.
+*) _Ibid._ _Severus_ 37.
 
 Thus the cult occupied no mean position at the time of the abdication of Diocletian; but that it had begun to pale before the advance of Christianity is evident as well from the boldness with which the champions of the new faith attacked it as from the subsequent course of events. The qualities which had served to attract the worshiper of the Mother and hold him through the centuries of her prosperity began to seem less worthy now that they began to be the subject of constant comparison with a purer and more reasonable religion. Constantine ascended the throne, and the Edict of Milan placed the Christian worship on an equal footing with the Pagan. The adoption of the new religion by the Emperor, the policy of his successors, Constantius and Constans, who decreed the closing of temples and the cessation of sacrifices on pain of death,* tended to make Paganism the persecuted instead of the persecuting religion. An insertion in the decree of Constans, however, providing for the punishment of officials who should neglect to enforce its provisions, betrays a lack of confidence in its efficiency. That the edict of the youthful rulers was inefficient at Rome, or that it was at least untimely, is shown by a decree issued after a short interval conceding the use of temples outside the walls because of their sacred character as being connected with the origin of time-honored festivals.* Maxentius, in the rebellion which proved fatal to Constans, attempted to conciliate the Pagan element by conceding the right to sacrifice during night hours, but the concession was withdrawn three years later, in 353 A. D., by Constantius, who vanquished him and united the East and "West under one scepter.* However, the moderate and tolerant spirit shown by the Emperor during his visit to Rome in 357, as well as the silence concerning the violations of the edicts against the practice of Pagan rites, makes it extremely probable that they were not strictly enforced, at least at Rome.
 
-*) Trebell. Poll. Claudius 4.
+*) Trebell. Poll. _Claudius_ 4.
 
-*) Arnob. V 5-16.
+*) Arnob. 5 5-16.
 
-*) Vopisc. Aurelianus 1.
+*) Vopisc. _Aurelianus_ 1.
 
-*) Cod. Theod. XVI 10, 4.
+*) _Cod. Theod._ 16 10, 4.
 
 The brunt of the attack upon Paganism by the sons of Constantine was sustained by the oriental religions. Firmicus Maternus, addressing them in the year 347 in his _De Errore Profanarum Religionum_, attacked especially the religions of Isis, Cybele, the Virgo Caelestis, and Mithras. The old-Roman and Graeco-Roman deities were now all but ancient.
 
@@ -975,19 +981,19 @@ As the Great Mother was one of the chief divinities to suffer from the assaults 
 
 *) _Ibid._ 10, 5.
 
-*) Or. V; Gibbon Decline and Fall XXIII.
+*) _Or._ 5; Gibbon _Decline and Fall_ 23.
 
 With the death of Julian Paganism again lost the imperial favor. Jovian and Valentinian, however, were tolerant, and it was not until the beginning of Gratian's administration, in 375, that Paganism again became the object of attack by the government. The protracted conflict over the altar of Victory was terminated by its final removal from the Senate. About 382, the Emperor decreed not only the withdrawal of governmental support from the Pagan cults, but even the seizure and appropriation by the State of all temple property.* This measure, while it did not deny the right to worship, deprived Paganism of the property it had accumulated and shared in common with the State for ages, and was a mortal stroke; the measures of Valentinian 2, in 391 and 392, forbidding attendance in the temples and sacrifices both public and private,* hastened the death.
 
-*) Am. Marc. XXII 9, 5.
+*) Am. Marc. 22 9, 5.
 
-*) Jul. Ep. 49, 431.
+*) Jul. _Ep._ 49, 431.
 
-*) Am. Mar. XXIII 3, 7.
+*) Am. Mar. 23 3, 7.
 
-*) V. Schultze Untergang des Heidentums I 221.
+*) V. Schultze _Untergang des Heidentums_ 1 221.
 
-*) Cod. Theod. XVI 10, 11 and 12.
+*) Cod. Theod. 16 10, 11 and 12.
 
 But Paganism made a last convulsive effort. On the death of Valentinian in 392, Eugenius was thrust forward by a faction as claimant to the throne, and reigned two years. He was a Christian, but adopted the policy of conciliating the Pagan party by generous concessions. Having obtained, after repeated efforts, the restitution of all privileges denied by Gratian,* the Pagans at Rome, headed and inspired by Virius Nicomachus Flavianus, consul for the year 394, attempted to re-establish the polytheistic religion, and for three months the altars of the ancient city were rich with sacrificial victims.* A _lustratio urbis_ was instituted for the first time since Aurelian; Paganism became once more the faith of the city of Rome, and Isis, the Great Mother, Mithras, and Flora were among the most prominent of the reinstated deities.
 
@@ -995,21 +1001,21 @@ Among the demonstrations of this three months of Pagan triumph that which made t
 
 This is the last appearance of the Great Mother to the world. Devotees no doubt there were who cherished her in secret, but from this time she disappears from view. Her triumph was cut short by the arrival of Theodosius on the scene, the death of Eugenius and Flavianus, and the enforcement of the decrees of Gratian. She is outlawed, and her priests driven from her temples.* Serena, the niece of Theodosius, adds insult to injury, and brings upon herself the fatal curse of the Vestals by despoiling the fallen deity of a necklace.* A few years elapse, and the Sibylline Books, which had been the cause of her introduction six centuries before, are burned by Stilicho; and in 448-9, we read in the _Fasti Silvii_, opposite the date March 27th, the day of the bathing of the Mother in the Almo: _Lavationem veteres nominabant. Resurrectio._ The most famed of the festivals of the Mother had already become a thing of antiquity.
 
-*) Ambros. Up. I 57, 6.
+*) Ambros. _Ep._ 1 57, 6.
 
-*) Codex Parisinus 8084 in Riese Anth. Lat. I 1. For full explanations of these verses cf. Morel. Rev. Arch. 1868 and De Rossi Bull. Crist. 1868.
+*) _Codex Parisinus_ 8084 in Riese _Anth. Lat._ 1 1. For full explanations of these verses cf. Morel. _Rev. Arch._ 1868 and De Rossi _Bull. Crist._ 1868.
 
 *) _Ibid._ v. 57 sqq.; 107; 108; 109; 103-7.
 
 The very site of the temple on the Palatine was soon forgotten. The prominent part the Mother played in the last struggle probably made her sanctuary one of the first Pagan edifices to fall before the fanaticism or rapacity of the Christian party as soon as all restraint was removed. It is not unlikely that the destruction of the temple took place during the sack of Rome by Alaric in 410, when the fury of the Christian soldiery raged unrestrained for three days against the monuments of the ancient religion.* The monk of Einsiedlen, in his _Itineraria_ of the ninth century, does not include it among his lists of ancient ruins. The writer of the _Mirabilia_, of the twelfth century, shows how vague were the ideas of the antiquary of his day. The Pantheon, then a Christian church, had been dedicated, says this writer, to the Mother of the Gods, Neptune, and all the gods by Agrippa, in obedience to a command of the goddess who appeared to him in a dream. In her honor he also made and set upon the summit of the edifice a gilded image of the deity, with a bronze canopy and the Pine-cone as a covering.* The same author says _ubi est Sancta Maria Maior fuit templum Cybeles_, which is not corroborated by other evidence and is in all probability untrue.*
 
-*) Zos. IV 59; V38.
+*) Zos. 4 59; 5 38.
 
-*) _Ibid._ V 38. The author sees a fulfillment of the curse in the strangling of Serena by the Senate on the approach of Alaric after the death of Stilicho.
+*) _Ibid._ 5 38. The author sees a fulfillment of the curse in the strangling of Serena by the Senate on the approach of Alaric after the death of Stilicho.
 
-*) Jerome Ep. 8; Milman Lat. Christ I 132-136.
+*) Jerome _Ep._ 8; Milman _Lat. Christ_ 1 132-136.
 
-*) Mirabilia 16 and 19 (Cod. Urb. Romae Top.).
+*) _Mirabilia_ 16 and 19 (_Cod. Urb. Romae Top._).
 
 And so the sites of the sanctuaries of the Mother passed as well from the vision as from the mind of man, and lay for many generations under the ever-changing city. Twelve centuries after her downfall evidences of her once having existed again appeared. At the very threshold of the greatest of the temples of the religion which had triumphed over her, thirty palms under ground, were brought to light eight _taurobolium_ altars, some of them shattered by the hands of Christian enemies, and all thrown one upon another in a shapeless heap.* They mark the site of the worship _in Vaticano_. The sites of other places in Rome sacred to the worship of the goddess were not determined until the present century. In 1848, three miles outside of Porta Maggiore, on the Via Labicana, were found the monuments of the tomb of the _gens Hateria_, one of them a relief showing a succession of structures on the _Sacra Via_, among them an arch-like _sacellum_ with a statue of the Mother and her lions.* This relief, in connection with passages in Dio Cassius and. Martial, is evidence of the existence of a shrine on the north slope of the Palatine near the _Summa Sacra Via_.* Another shrine, to whose decoration belonged a terra-cotta antefix found near the church of San Paolo Fuori le Mura, probably stood near the junction of the Almo with the Tiber, the scene of the landing of the goddess and the _Lavatio_.* The _Basilica Hilariana_, a series of chambers which were occupied by a college of _dendrophori_ in the second century A. D., was discovered on the Caelian in 1889.*
 
@@ -1017,19 +1023,19 @@ The Palatine temple itself was uncovered at the beginning of the century, but wa
 
 *) _Ibid._ 30.
 
-*) C. I. L. VI 497-504.
+*) _C. I. L._ 6 497-504.
 
-*) Annales 1849, 363-410.
+*) _Annales_ 1849, 363-410.
 
-*) Dio Cass. XLVI 33; Mart. I 70; Hulsen Rom. Mitth. 1895 p. 25 sqq.
+*) Dio Cass. 46 33; Mart. 1 70; Hülsen _Röm. Mitt._ 1895 p. 25 sqq.
 
-*) Visconti Annales 1867, 296 sqq.
+*) Visconti _Annales_ 1867, 296 sqq.
 
-*) Visconti Bull. Comm. 1890, 18-25.
+*) Visconti _Bull. Comm._ 1890, 18-25.
 
-*) Hulsen Bom. Mitth. 1895, 1-28.
+*) Hülsen _Röm. Mitt._ 1895, 1-28.
 
-*) Guida del Palatino 134 sq.
+*) _Guida del Palatino_ 134 sq.
 
 # 7\. The Great Mother in Art, Literature, and Religion.
 
@@ -1041,41 +1047,41 @@ A second stage in Asiatic representations may be seen in remains found at Cyme i
 
 The contact of Greek with Asiatic had the effect not only of improving the art of the latter but of multiplying it. The appearances of the Mother in art before the end of the fifth century B. C. are very rare, and it is only from the Hellenistic age that her figure becomes common in the eastern world. It is in the Roman period, however, that she becomes most common. The original types of Asia Minor, with all the numerous types developed by the Greek world, then become common property, and under the Empire her lineaments are familiar in every part of the known world.
 
-*) Ramsay Jour. Hell. Stud. Ill 35-41; V 244; Reinach Bull, de Corr. Hell. XIII 556.
+*) Ramsay _Jour. Hell. Stud._ 3 35-41; 5 244; Reinach _Bull. de Corr. Hell._ 13 556.
 
 *) Reinach op. cit. 543 sqq.
 
 The different types of representation of the Mother and her attributes can best be shown by passing in review coins and medallions struck in Rome and the provinces after the transfer of the goddess from Pessinus. The fundamental type shows the deity seated on a chair or throne, rather fully draped, with a head-dress which is usually turreted* and from which often descends over the shoulders on either side a veil.* In rare instances she is standing instead of sitting.* She is sometimes at the doorway or in the interior of a shrine or temple.* The _patera_, sometimes in the right and sometimes in the left hand, is a frequent attribute.* The tympanum, held in the hand, in the hollow of the arm, serving as a support for the elbow of the goddess as she leans in easy attitude, resting at her side, in one instance between the forefeet of a lion, is still more frequent.* The cymbals also appear, held by the goddess or suspended from a tree or plant.* The scepter is another attribute.* The lion is the most frequent attribute of all. He sits at her side, reclines at her feet, appears behind her; his head alone appears, or his front alone is seen. The goddess rests her feet upon him or rests a foot on one lion while she holds others suspended by the neck in either hand, sits upon one while he bears her in full career, is drawn in her car by two or by four of them. Her favorite position is on her throne with a lion on either side. One representation shows a lioness nourishing a child, which may be the Mother while an infant.* Various attributes such as branches of laurel or pine, garlands on the head or in the hand, poppies and ears of grain or the horn of plenty in the hand, trees and plants, testify to her connection with the fruits of the field.* Attis makes his appearance under the Empire, though less frequently than might be expected. He is usually standing, but is found reclining, or leaning against the pine; he wears the Phrygian cap, bears the pedum or syrinx, has the moon-sickle across his shoulders, like Men; stands in front of the Mother, at her side, outside her temple, or with her in her chariot; she places her hand on his shoulder.* The miraculous drawing of the craft up the Tiber by Claudia is also represented.* Isolated instances occur of the goddess leaning against a column, stretching forth her hand toward a pillar, of a stag in the field of the coin, of signs of the zodiac, of stars on the head of Attis.*
 
-*) Mi. V 144, 834.
+*) Mi. 5 144, 834.
 
-*) Coh. IV 116, 137.
+*) Coh. 4 116, 137.
 
-*) _Ibid._ VIII 286, 94.
+*) _Ibid._ 8 286, 94.
 
-*) Mi. IV Suppl. 563, 84.
+*) Mi. 4 Suppl. 563, 84.
 
-*) Coh. II 431, 229; Imhoof Jahrb. Ill 295 sq. taf. 9, 28; Coh. Ill 150, 172; Mi. VII Suppl. 400, 384; Head Ionia 256, 171.
+*) Coh. 2 431, 229; Imhoof _Jahrb._ 3 295 sq. taf. 9, 28; Coh. 3 150, 172; Mi. 7 Suppl. 400, 384; Head _Ionia_ 256, 171.
 
-*) Coh. II 439, 305.
+*) Coh. 2 439, 305.
 
-*) Ibid.
+*) _Ibid._
 
-*) Mi. I 371, 60; Coh. IV 116, 137; III 150, 172; Bab. II 312, 3; Coh. IV 115, 128; Head H. N. 594; Coh. Ill 274, 354; Bab. II 566, 4; Coh. II 382, 1139; 431, 229; Coh. Cat. Oreau 176, 2001.
+*) Mi. 1 371, 60; Coh. 4 116, 137; 3 150, 172; Bab. 2 312, 3; Coh. 4 115, 128; Head _H. N._ 594; Coh. 3 274, 354; Bab. 2 566, 4; Coh. 2 382, 1139; 431, 229; Coh. _Cat. Gréau_ 176, 2001.
 
 In seeking to gain an adequate conception of the place of the Mother in the plastic arts we may be aided by making rough divisions of the monuments in which she appears, and observing their variety and extent. They may be classified as coins, reliefs, statues and statuettes, votive offerings, sarcophagi, household objects of ornamental value, cameos or gems, mosaics, and paintings.
 
 The first coins bearing representations of the Mother are _denarii_ of the early years of the first century B. C.* They are comparatively rare for two centuries, though few periods of prominent rulers in the Empire are without an example. The short reigns only fail to be represented among extant coins referring to the Mother, many of them for the reason that they put forth little coinage of any kind. The extant specimens of the Republic are of gold and silver, and bronze becomes frequent in the second century of the Empire. The appearance of the Mother in coinage is most frequent during the second century and the first half of the third century A. D. It is rare from 250 to 300, and does not occur in the fourth century except in a number of contorniates which are ascribed to the final period of Paganism.* Those coins of the Republic which bore allusions to the cult were usually commemorative, such as those of the years 83, 69, and 54, which were struck by the aediles in memory of the _Megalensia_ celebrated by them.* The majority of instances of the Mother's appearance in coinage of the Empire, as has been stated, are to be attributed only to general favor.
 
-*) Coh. Ill 164, 295; 223, 101; Mi. VII Suppl. 547, 289; Cat Waloher de Maltheim 220, 2696; Mi. VII Suppl, 400, 384; Imh. 1. c ; Mi. IV 368, 9885 Coh. II 439, 305.
+*) Coh. 3 164, 295; 223, 101; Mi. 7 Suppl. 547, 289; _Cat. Waloher de Maltheim_ 220, 2696; Mi. 7 Suppl. 400, 384; Imh. _l. c._ ; Mi. 4 368, 988; Coh. 2 439, 305.
 
-*) Coh. II 439, 306; Wroth Cat. Gr. Coins of Mysia 50, 236, pi. 13, 7; Coh. VIII 277, 26; Havercamp Alex. Num. pi. 7, 18; Coh. Ill 164, 295; Mi. VII Suppl. 645, 58; Coh. VIII 299, 212; 300, 214.
+*) Coh. 2 439, 306; Wroth _Cat. Gr. Coins of Mysia_ 50, 236, pl. 13, 7; Coh. 8 277, 26; Havercamp _Alex. Num._ pl. 7, 18; Coh. 3 164, 295; Mi. 7 Suppl. 645, 58; Coh. 8 299, 212; 300, 214.
 
-*) Coh. II 439, 307.
+*) Coh. 2 439, 307.
 
-*) _Ibid._ IV 116, 137; Mi. Ill 159, 708; IV 102, 559; Coh. VIII 318, 362; Mi. IV 391, 104.
+*) _Ibid._ 4 116, 137; Mi. 3 159, 708; 4 102, 559; Coh. 8 318, 362; Mi. 4 391, 104.
 
-*) Bab. I 526, 19. I 395, 18 and I 486, 14, dating from 104 and 89 B. C, are disputed.
+*) Bab. 1 526, 19. 1 395, 18 and 1 486, 14, dating from 104 and 89 B. C., are disputed.
 
 Representations in relief may be divided into relief on the friezes of sacred buildings, tomb relief, and altar relief. In the first class, the goddess appears on the frieze of the treasure-house of the Siphnians at Delphi going into battle drawn by her lions, work of the last quarter of the sixth century B. C.* She also appears riding on the back of a lion on the great altar at Pergamum, and again on the frieze at Priene.* Mention has already been made of her appearance on tomb reliefs in the archaic period of art in Asia Minor, and in the transition at Cyme. In Italy, the figure of Attis, the unfortunate youth cut off in the prime of his beauty and strength, representing the death of vegetation which was to rise again, naturally found a place in tomb relief. He is represented at Brescia with his chin supported on his right hand, one leg carelessly swung before the other, a youth in meditation and sorrow.* The presence of an inverted torch in this type of relief strengthens the allusion to death.* Among altar reliefs one of the most interesting is that of Claudia Quinta drawing with her fillet the ship on which sits the enshrined goddess. It is dedicated to _Matri Deum et Navisalviae_.* The representations usually incised, of the attributes of the Mother and Attis and the instruments of the cult --- the pine, with birds in its foliage, with instruments suspended from its branches, with Attis leaning against it, the syrinx, the straight and the curved pipe, the _patera_, vases of various forms, the pilleus, the tiara, the tympanum, cymbals, and crotala, the lighted torches, inverse or transverse, the heads of the bull or the ram, the animals themselves; the cock, _gallus_, as a play on the designation of the priests, the sacrificial knife, the Mother herself in her car attended by Attis --- may be mentioned here.* Votive offerings are numerous both in Greece and the West. Here may be classed the silver image presented by the _Archigallus_ and others to the college of the _cannophori_ at Ostia.* At Arausio in Gallia Narbonensis was found a marble fragment inscribed to the Mother and bearing the delineation of a human foot.* A coin of 83 B. C. shows the goddess and a deformed human foot.* Votive offerings in the form of reliefs of the deity in _aediculae_ were common in the Hieron of Epidaurus and have been found in great numbers in Italy. The latter average about 35 by 25 centimeters, and present the deity in most instances on her throne with modius or mural crown and full drapery, two locks of hair descending on either side of the face, the tympanum and patera in her hands, a lion on her knees or lions at her side, while a female figure with a torch, or a youth, stands near.*
 
