@@ -755,7 +755,7 @@ Modern interpretation does not differ from the ancient. Taking as a basis the Pe
 
 The actual presence of Attis in the period of the Empire and the esteem in which he is held are among the most important manifestations in the growth of the cult at Rome. Known only as a character in the legend under the Republic, he is found in the new March festival in the imperial period receiving a full share in the ceremonies of commemoration. When the _taurobolium_ and _criobolium_ come into prominence, it is to both Attis and the Mother that the sacrifices are made, and he is put on an equality with his protectress. He is advanced to the rank of divinity and is omnipotent and omniscient --- Ἄττει δ᾽ ὑψίστῳ καὶ συνιέντι τὸ πᾶν.* The Emperor Julian calls him μέγας θεός and βασιλεύς.* However, he is secondary to the Mother in importance, and is never entirely independent of her at Rome, but always her associate and minister --- ὑπουργὸς τῇ Μητρὶ καὶ ἡνίοχος.* His importance in the East was the same. Psellus refers him to the Phrygian Zeus,* and Arrian says the Bithynians called Πάπας τὸν Δία καὶ Ἄττιν τὸν αὐτόν.*
 
-*) Kaibel Epig._ 824.
+*) _Kaibel Epig._ 824.
 
 *) _Or._ 5 168 C; cf. Socrat. _Hist. Eccles._ 3 23.
 
