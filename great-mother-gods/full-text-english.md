@@ -205,7 +205,7 @@ The instruments used in the worship were no less in accord with the wild nature 
 
 *) Eurip. _Bacch._ 58, 124. The Mother is τυμπανοτερπης in _Orph. Hymns_ 26, 11.
 
-*) Herod. 4 76,
+*) Herod. 4 76.
 
 *) Eurip. _l. c._
 
