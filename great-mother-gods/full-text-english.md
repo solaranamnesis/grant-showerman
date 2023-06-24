@@ -293,7 +293,7 @@ The fact that the dawn of history finds the cult of the Mother widely spread in 
 
 *) Roscher's Lex. 2 1, 1651.
 
-*) Photius s. v. Κύβηβος. Χάρων δὲ ὁ Λαμψακηνὸς ἐν τῇ πρωτῇ τὴν Ἀφροδίτην ὑπὸ Φρυγῶν καὶ Λυδὼν Κυβἡβην λέγεσϑαι.
+*) Photius s. v. Κύβηβος. Χάρων δὲ ὁ Λαμψακηνὸς ἐν τῇ πρωτῇ τὴν Ἀφροδίτην ὑπὸ Φρυγῶν καὶ Λυδὼν Κυβἡβην λέγεσθαι.
 
 *) Comparetti _Annales de l'Institut_ 1862, 23.
 
