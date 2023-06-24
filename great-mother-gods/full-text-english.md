@@ -887,7 +887,7 @@ That the characteristics or the cult of the Mother should remain invariable in a
 
 *) Macrob. 1. 12, 20; cf. p. 266.
 
-*) _C. I. L._ 9 1538-1542: _Attini sacrum et Minervae Berecint._ or _Paracentiae.
+*) _C. I. L._ 9 1538-1542: _Attini sacrum et Minervae Berecint._ or _Paracentiae_.
 
 *) Aug. _De Civ. Dei_ 7 16.
 
