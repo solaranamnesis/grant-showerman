@@ -482,7 +482,10 @@ Such were some of the features which enabled the Mother to prolong her resistanc
 [^154]: Dionys. 2 19.
 [^155]: _De Civ. Dei_ 7 25: _Et Attis ille non est commemoratus nec cius ab isto interpretatio requisita est... Merito hinc aversatus est Varro noster, neque hoc dicere voluit._
 [^156]: Polyb. 21 37; _C. I. L._ 6 2183.
-[^157]: _Qui dum esse na hora nam adlatam imponeret aedilia signo siae (sie W) et deam gallantes vario retinebant studio HLW._ _Qui dum messem hornam adlatam imponeret aedilis signo Cybelae, deam gallantes vario recinebant strepitu._ Riese. _Qui dum messem hornam adlatam imponunt Attidis signo synodiam gallantes vario recinebant studio._ Lachmann. _Qui cum e scaena coronam adlatam imponeret aedilis signo, synodiam gallantes vario recinebant studio._ Buecheler.
+[^157]: _Qui dum esse na hora nam adlatam imponeret aedilia signo siae (sie W) et deam gallantes vario retinebant studio HLW._  
+    _Qui dum messem hornam adlatam imponeret aedilis signo Cybelae, deam gallantes vario recinebant strepitu._ Riese.  
+    _Qui dum messem hornam adlatam imponunt Attidis signo synodiam gallantes vario recinebant studio._ Lachmann.  
+    _Qui cum e scaena coronam adlatam imponeret aedilis signo, synodiam gallantes vario recinebant studio._ Buecheler.
 [^158]: Cavedoni _Bull. dell' 1st. Arch._ 1844 p. 22.
 [^159]: _Münzwesen_ n. 136.
 [^160]: 1 395 n. 18.
@@ -590,7 +593,13 @@ Such were some of the features which enabled the Mother to prolong her resistanc
 [^262]: _C. I. L._ 12 4321, 4322, 4325; 6 497-504. _Aemobolium_, 9 3015.
 [^263]: _Ibid._ 12 1569, 1744.
 [^264]: _Ibid._ 6 512, cf. 504.
-[^265]: _Codex Parisinus_ 57-62 in Riese _Anth. Lat._ 1 1. _Quis tibi taurobolus vestem mutare suasit_ _Inflatus dives subito mendicus ut esses?_ _Obsitus et pannis, modica stipe factus epaeta,_ _Sub terram missus, pollutus sanguine tauri,_ _Sordidus, infectus, vestes servare cruentas?_ _Vivere num speras viginti mundus in annos?_
+[^265]: _Codex Parisinus_ 57-62 in Riese _Anth. Lat._ 1 1.  
+    _Quis tibi taurobolus vestem mutare suasit_  
+    _Inflatus dives subito mendicus ut esses?_  
+    _Obsitus et pannis, modica stipe factus epaeta,_  
+    _Sub terram missus, pollutus sanguine tauri,_  
+    _Sordidus, infectus, vestes servare cruentas?_  
+    _Vivere num speras viginti mundus in annos?_
 [^266]: _C. I. L._ 6 510, 736. The _taurobolium_ was not exclusively a rite of the Great Mother.
 [^267]: _Das Zeitalter Constantins_ 2 223 note 1.
 [^268]: Firm. Mat. _De Error._ 27, 8 makes a comparison of the _taurobolium_ with the shedding of the blood of Christ.
